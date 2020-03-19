@@ -6,7 +6,7 @@
 
 > NVC aims to support change on three interconnected levels: within self, between others, and within groups and social systems. NVC is taught as a process of interpersonal communication designed to improve compassionate connection to others. Practitioners also emphasize that it can have many beneficial "side effects" as a spiritual practice, as a set of values, as parenting best practices, as a tool for social change, as a mediation tool, as an educational orientation, and as a worldview. - [Nonviolent Communication - wikipedia](https://en.wikipedia.org/wiki/Nonviolent_Communication)
 
-#### Main Course Materials
+#### Main Course Videos
 
 * [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
   > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
@@ -34,6 +34,7 @@
 * [Feelings Inventory](#feelings-inventory)
 * [Human Needs and Human-scale Development](#human-needs-and-human-scale-development)
 * [Resources](#resources)
+  * [A Mindful Approach to Nonviolent Communication](#mindful-approach-to-nonviolent-communication)
 * [Center for Non-Violent Communication](#center-for-non-violent-communication)
 
 ## Marshall Rosenberg
@@ -191,8 +192,9 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 ## Human Needs and Human-scale Development
 
-* [cnvc - Needs Inventory](https://www.cnvc.org/training/resource/needs-inventory) - [p2pfoundation wiki](https://wiki.p2pfoundation.net/Max-Neef_Model_of_Human-Scale_Development)
-* [Max-Neef Model of Human-Scale Development](http://www.rainforestinfo.org.au/background/maxneef.htm)
+* [Universal Human Needs](https://baynvc.org/wp-content/uploads/2015/06/Universal-Human-Needs.jpg)
+* [cnvc - Needs Inventory](https://www.cnvc.org/training/resource/needs-inventory) 
+* [Max-Neef Model of Human-Scale Development](http://www.rainforestinfo.org.au/background/maxneef.htm) - [p2pfoundation wiki](https://wiki.p2pfoundation.net/Max-Neef_Model_of_Human-Scale_Development)
   > Max-Neef classifies the fundamental human needs as: **subsistence**, **protection**, **affection**, **understanding**, **participation**, **recreation** (in the sense of leisure, time to reflect, or idleness), **creation**, **identity and freedom**. Needs are also defined according to the existential categories of being, having, doing and interacting, and from these dimensions, a 36 cell matrix is developed which can be filled with examples of satisfiers for those needs.
 
 | **Fundamental Human Needs** | **Being (qualities)** | **Having (things)** | **Doing (actions)** | **Interacting (settings)** |
@@ -248,6 +250,15 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 * [Emotional Competency - Study Guide](http://www.emotionalcompetency.com/searchsite.htm)
   > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
+
+#### Mindful Approach to Nonviolent Communication
+
+* [Say What You Mean](https://more.orenjaysofer.com) by Oren Jay Sofer
+  > How to speak and listen more effectively--to communicate mindfully and improve all relationships--based on the author's unique synthesis of mindfulness practice combined with the principles of nonviolent communication.
+* [Ep. 37: Oren Jay Sofer — How to Improve Your Relationships with Better Communication](https://podcasts.apple.com/us/podcast/ep-37-oren-jay-sofer-how-to-improve-your-relationships/id1419082632?i=1000434587959)
+  > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
+* [Ep. 86 - Oren Jay Sofer - Metta Hour with Sharon Salzberg](https://beherenownetwork.com/sharon-salzberg-metta-hour-ep-86-oren-jay-sofer/)
+  > Oren Jay Sofer is a member of the Spirit Rock Teacher’s Council, a Certified Trainer of Nonviolent Communication, and a Somatic Experiencing Practitioner for healing trauma. His first book, “Say What You Mean” comes out in December 2018. In this conversation, Sharon and Oren discuss how Oren came to the path of meditation practice, and his time spent in the East. They also discuss the many nuances of effective communication both related to mindfulness practice, somatic healing, and the application of non-violent communication. The conversation closes with Oren leading a short guided meditation. For more information, visit orenjaysofer.com.
 
 #### Non-Defensive Communication
 
