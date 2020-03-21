@@ -9,20 +9,13 @@
 
 ## Contents
 
-* [Notes](#notes)
 * [Introduction](#introduction)
 * [Origin](#origin)
 * [Process](#process)
 * [Avoid criticism blame insults or demands](#avoid-criticism-blame-insults-or-demands)
 * [Subsequent Sessions](#subsequent-sessions)
 * [Conclusion](#conclusion)
-
-## Notes
-
-* [Psychiatric Diagnoses Found to Be "Scientifically Meaningless"](https://www.technologynetworks.com/neuroscience/news/psychiatric-diagnoses-found-to-be-scientifically-meaningless-321555)
-* [Paulo Freire And The War On Brasil’s Public Education](https://www.brasilwire.com/paulo-freire-and-the-war-on-brasils-public-education/)
-* [Punished by Rewards? A Conversation with Alfie Kohn](https://www.alfiekohn.org/article/punished-rewards-article/)
-* [Amtssprache (Adolf Eichmann) - Sprache, die Wahlmöglichkeit leugnet -"Müssen" - Marshall Rosenberg](https://www.youtube.com/watch?v=Sk9-3bMAGBw)
+* [References](#references)
 
 ## Introduction
 
@@ -345,5 +338,12 @@ Because it basically focuses on these two questions that I described what's aliv
 Now, how can something be so simple and so difficult? Well, it is simple. Nonviolent communication is a more natural way of being. It simply says, Let's stay connected to life, the life within us. Like any other form of life, whether it be a tree or animals, life requires being connected enough to live to know how to fulfill our needs. So in that sense, nonviolent communication is a very simple process. But the second thing that people say about is how difficult it can be. The reason that it's so difficult is that it requires liberating ourselves from centuries of education that have buried what's alive in us behind cultural education that is designed to make us nice Dead people, not compassionate living people.
 
 **I look forward in our subsequent sessions to seeing how we can connect with nonviolent communication in a way that helps us to live our lives more fully.**
+
+## References
+
+* [Psychiatric Diagnoses Found to Be "Scientifically Meaningless"](https://www.technologynetworks.com/neuroscience/news/psychiatric-diagnoses-found-to-be-scientifically-meaningless-321555)
+* [Paulo Freire And The War On Brasil’s Public Education](https://www.brasilwire.com/paulo-freire-and-the-war-on-brasils-public-education/)
+* [Punished by Rewards? A Conversation with Alfie Kohn](https://www.alfiekohn.org/article/punished-rewards-article/)
+* [Amtssprache (Adolf Eichmann) - Sprache, die Wahlmöglichkeit leugnet -"Müssen" - Marshall Rosenberg](https://www.youtube.com/watch?v=Sk9-3bMAGBw)
 
 Transcribed by https://otter.ai

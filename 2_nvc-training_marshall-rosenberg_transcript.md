@@ -7,22 +7,6 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
 
-## Notes
-
-* [O J. Harvey - Publications - NeuroTree](https://neurotree.org/beta/publications.php?pid=490) - University of Colorado, Boulder
-* [Theologian Walter Wink Website](https://web.archive.org/web/20140104161930/http://walterwink.com/) - web.archive.org
-  * [Transcript of Walter Wink’s Nonviolence for the Violent](https://www.lutheranpeace.org/articles/transcript-of-walter-winks-nonviolence-for-the-violent/) - ([video](https://www.lutheranpeace.org/articles/nonviolence-for-the-violent-walter-wink/))
-  * [Transforming the powers: the continuing relevance of Walter Wink](https://www.opendemocracy.net/en/transformation/transforming-powers-continuing-relevance-of-walter-wink/)
-* [Beyond Right and Wrong](https://seedofpeace.org/nvc-introductory-articles/beyond-right-and-wrong/)
-* [Clinical Psychology and Cardiovascular Disease: An Up-to-Date Clinical Practice Review for Assessment and Treatment of Anxiety and Depression](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3195800/)
-* [A Course in Miracles – Chapter 16: The Forgiveness of Illusions – I. True Empathy](https://acourseinmiraclesnow.com/course-miracles-chapter-16-true-empathy/)
-* [How to Make yourself miserable by Dan Greenberg](https://www.goodreads.com/book/show/598825.How_to_Make_Yourself_Miserable)
-* [A Thousand Clowns](https://en.wikipedia.org/wiki/A_Thousand_Clowns)
-* [The Oath to Adolf Hitler](https://research.calvin.edu/german-propaganda-archive/hess1.htm). Speech by Rudolf Hess on 25 February 1934
-* [On the Punishment and the Protective Use of Force; by Jim Manske](https://nvcnextgen.org/2018/10/on-the-punishment-and-the-protective-use-of-force-by-jim-manske/)
-
-[![](https://i.imgur.com/ABeax3g.png)](https://www.cnvc.org/training/resource/needs-inventory)
-
 
 ## Contents
 
@@ -33,6 +17,8 @@
 * [Our feelings tell us what is happening to our needs](#our-feelings-tell-us-what-is-happening-to-our-needs)
 * [Judging yourself for judging yourself](#judging-yourself-for-judging-yourself)
 * [Training ourselves never to give our power away](#training-ourselves-never-to-give-our-power-away)
+* [References](#references)
+
 
 ## Introduction
 
@@ -541,3 +527,21 @@ This is one of the lessons, that nonviolent communication is designed to help us
 [Walter Wink, the theologian](https://www.opendemocracy.net/en/transformation/transforming-powers-continuing-relevance-of-walter-wink/), says it's very important to be conscious, that institutions have their own spirituality. Many structures are set up in a way that are designed to get people to obey authority no matter what the authority wants them to do.
 
 I hope that we educate ourselves that no matter what structures we're in, we stay connected to our own spirituality. Neither submit nor rebel. Then I hope that we all develop the skill that my son demonstrated, by no matter how people speak to us, whatever their titles, that we try to see their humaneness, and not to give them the power to make us submit or rebel. Not to give them the power to create shame on our part, depression on our part, but this requires some skills that we'll be talking about in subsequent sessions that will show us how to see other people's humaneness, even when they are speaking to us in a violent language, even if they have positions of power within institutions that do not share values of compassion.
+
+## References
+
+* [O J. Harvey - Publications - NeuroTree](https://neurotree.org/beta/publications.php?pid=490) - University of Colorado, Boulder
+* [Theologian Walter Wink Website](https://web.archive.org/web/20140104161930/http://walterwink.com/) - web.archive.org
+  * [Transcript of Walter Wink’s Nonviolence for the Violent](https://www.lutheranpeace.org/articles/transcript-of-walter-winks-nonviolence-for-the-violent/) - ([video](https://www.lutheranpeace.org/articles/nonviolence-for-the-violent-walter-wink/))
+  * [Transforming the powers: the continuing relevance of Walter Wink](https://www.opendemocracy.net/en/transformation/transforming-powers-continuing-relevance-of-walter-wink/)
+* [Beyond Right and Wrong](https://seedofpeace.org/nvc-introductory-articles/beyond-right-and-wrong/)
+* [Clinical Psychology and Cardiovascular Disease: An Up-to-Date Clinical Practice Review for Assessment and Treatment of Anxiety and Depression](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3195800/)
+* [A Course in Miracles – Chapter 16: The Forgiveness of Illusions – I. True Empathy](https://acourseinmiraclesnow.com/course-miracles-chapter-16-true-empathy/)
+* [How to Make yourself miserable by Dan Greenberg](https://www.goodreads.com/book/show/598825.How_to_Make_Yourself_Miserable)
+* [A Thousand Clowns](https://en.wikipedia.org/wiki/A_Thousand_Clowns)
+* [The Oath to Adolf Hitler](https://research.calvin.edu/german-propaganda-archive/hess1.htm). Speech by Rudolf Hess on 25 February 1934
+* [On the Punishment and the Protective Use of Force; by Jim Manske](https://nvcnextgen.org/2018/10/on-the-punishment-and-the-protective-use-of-force-by-jim-manske/)
+
+[![](https://i.imgur.com/ABeax3g.png)](https://www.cnvc.org/training/resource/needs-inventory)
+
+Transcribed by https://otter.ai
