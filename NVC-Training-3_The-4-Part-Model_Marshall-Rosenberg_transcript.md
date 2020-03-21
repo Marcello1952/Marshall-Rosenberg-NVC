@@ -1,4 +1,4 @@
-# Session #3 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# The 4 Part NVC Model - Session #3 - Nonviolent Communication Training - Marshall Rosenberg
 **Observations, Evaluations, Developing a Literacy of Needs, and Needs vs Strategies**
 
 > In this session, I'll be describing the kind of honesty that nonviolent communication supports. It's a radically different kind of honesty than many of us have been educated to use. 
@@ -8,7 +8,6 @@
 
 ## Contents
 
-* [Notes](#notes)
 * [Transcript](#transcript)
 * [Observation and Evaluation](#observation-and-evaluation)
 * [Feelings and Needs](#feelings-and-needs)
@@ -21,75 +20,7 @@
   * [More constructive than criticism](#more-constructive-than-criticism)
   * [Difficult needs to get clear](#difficult-needs-to-get-clear)
   * [The word Love](#the-word-love)
-* [Strategies](#strategies)
-
-## Notes
-
-* [**Max-Neef Model of Human-Scale Development**](http://www.rainforestinfo.org.au/background/maxneef.htm)
-  > Max-Neef classifies the fundamental human needs as: **subsistence**, **protection**, **affection**, **understanding**, **participation**, **recreation** (in the sense of leisure, time to reflect, or idleness), **creation**, **identity and freedom**. Needs are also defined according to the existential categories of being, having, doing and interacting, and from these dimensions, a 36 cell matrix is developed which can be filled with examples of satisfiers for those needs.
-
-| **Fundamental Human Needs** | **Being (qualities)** | **Having (things)** | **Doing (actions)** | **Interacting (settings)** |
-| ------------- | ------------- | ------------- | ------------- | ------------- |
-| **Subsistence** | physical and mental health | food, shelter work | feed, clothe, rest, work | living environment, social setting |
-| **Protection** | care, adaptability, autonomy | social security, health systems, work | co-operate, plan, take care of, help | social environment, dwelling  |
-| **Affection** | respect, sense of humour, generosity, sensuality | friendships, family, relationships with nature | share, take care of, make love, express emotions | privacy, intimate spaces of togetherness | 
-| **Understanding** | critical capacity, curiosity, intuition | literature, teachers, policies | educational | analyse, study, meditate, investigate | schools, families universities, communities | 
-| **Participation** | receptiveness, dedication, sense of humour | responsibilities, duties, work, rights | cooperate, dissent, express opinions | associations, parties, churches, neighbourhoods |
-| **Leisure** | imagination, tranquillity, spontaneity | games, parties, peace of mind | day-dream, remember, relax, have fun | landscapes, intimate spaces, places to be alone |
-| **Creation** | imagination, boldness, inventiveness, curiosity | abilities, skills, work, techniques | invent, build, design, work, compose, interpret | spaces for expression, workshops, audiences | 
-| **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
-| **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
-
-* [**4 Part NVC Process - PDF**](https://www.nonviolentcommunication.com/pdf_files/4part_nvc_process.pdf)
-
-#### 1. Observations
-
-State the observations that are leading you to feel the need to say something. These should be purely factual observations, with no component of judgment or evaluation. 
-
-#### 2. Feelings
-
-State the feeling that the observation is triggering in you. Or, guess what the other person is feeling, and ask. Naming the emotion, without moral judgment, enables you to connect in a spirit of mutual respect and cooperation. Perform this step with the aim of accurately identifying the feeling that you or the other person are experiencing in that moment, not with the aim of shaming them for their feeling or otherwise trying to prevent them from feeling as they do.
-
-#### 3. Needs
-
-State the need that is the cause of that feeling. Or, guess the need that caused the feeling in the other person, and ask. When our needs are met, we have happy, positive feelings; when they are not met, we have negative feelings. By tuning into the feeling, you can often find the underlying need. Stating the need, without morally judging it, gives you both clarity about what is alive in you or the other person in that moment.
-
-#### 4. Requests
-
-Make a concrete request for action to meet the need just identified. Ask clearly and specifically for what you want right now, rather than hinting or stating only what you don't want.
-
-* [**Feelings Inventory**](https://www.cnvc.org/training/resource/feelings-inventory)
-
-#### Feelings when your needs are satisfied
-
-* AFFECTIONATE: compassionate, friendly, loving, open hearted, sympathetic, tender, warm
-* ENGAGED: absorbed, alert, curious, engrossed, enchanted, entranced, fascinated, interested, intrigued, involved, spellbound, stimulated
-* HOPEFUL: expectant, encouraged, optimistic
-* CONFIDENT: empowered, open, proud, safe, secure
-* EXCITED: amazed, animated, ardent, aroused, astonished, dazzled, eager, energetic, enthusiastic, giddy, invigorated, lively, passionate, surprised, vibrant
-* GRATEFUL: appreciative, moved, thankful, touched
-* INSPIRED: amazed, awed, wonder
-* JOYFUL: amused, delighted, glad, happy, jubilant, pleased, tickled
-* EXHILARATED: blissful, ecstatic, elated, enthralled, exuberant, radiant, rapturous, thrilled
-* PEACEFUL: calm, clear headed, comfortable, centered, content, equanimous, fulfilled, mellow, quiet, relaxed, relieved, satisfied, serene, still, tranquil, trusting
-* REFRESHED:, enlivened, rejuvenated, renewed, rested, restored, revived
-
-#### Feelings when your needs are not satisfied
-
-* AFRAID: apprehensive, dread, foreboding, frightened, mistrustful, panicked, petrified, scared, suspicious, terrified, wary, worried
-* ANNOYED: aggravated, dismayed, disgruntled, displeased, exasperated, frustrated, impatient, irritated, irked
-* ANGRY: enraged, furious, incensed, indignant, irate, livid, outraged, resentful
-* AVERSION: animosity, appalled, contempt, disgusted, dislike, hate, horrified, hostile, repulsed
-* CONFUSED: ambivalent, baffled, bewildered, dazed, hesitant, lost, mystified, perplexed, puzzled, torn
-* DISCONNECTED: alienated, aloof, apathetic, bored, cold, detached, distant, distracted, indifferent, numb, removed, uninterested, withdrawn
-* DISQUIET: agitated, alarmed, discombobulated, disconcerted, disturbed, perturbed, rattled, restless, shocked, startled, surprised, troubled, turbulent, turmoil, uncomfortable, uneasy, unnerved, unsettled, upset
-* EMBARRASSED: ashamed, chagrined, flustered, guilty, mortified, self-conscious
-* FATIGUE: beat, burnt out, depleted, exhausted, lethargic, listless, sleepy, tired, weary, worn out
-* PAIN: agony, anguished, bereaved, devastated, grief, heartbroken, hurt, lonely, miserable, regretful, remorseful
-* SAD: depressed, dejected, despair, despondent, disappointed, discouraged, disheartened, forlorn, gloomy, heavy hearted, hopeless, melancholy, unhappy, wretched
-* TENSE: anxious, cranky, distressed, distraught, edgy, fidgety, frazzled, irritable, jittery, nervous, overwhelmed, restless, stressed out
-* VULNERABLE: fragile, guarded, helpless, insecure, leery, reserved, sensitive, shaky
-* YEARNING: envious, jealous, longing, nostalgic, pining, wistful
+* [4 Part NVC Model](#4-part-nvc-model)
 
 ## Transcript
 
@@ -628,5 +559,52 @@ She said, Oh, so I'm supposed to do all the cleaning around the house, myself, a
 This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear I request as a demand and this threatens their need for autonomy and makes it harder for them to enjoy giving. So we need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
 
 If your objective is just to get people to do what you want, don't study nonviolent communication. Go to a dog obedience school and see how they train dogs.
+
+[![](https://i.imgur.com/LKOKvVd.jpg)](https://www.mediateyourlife.com/handouts/)
+
+## [4 Part NVC Process](https://www.nonviolentcommunication.com/pdf_files/4part_nvc_process.pdf)
+
+### Observations
+
+> State the observations that are leading you to feel the need to say something. These should be purely factual observations, with no component of judgment or evaluation. 
+
+### Feelings
+
+> State the feeling that the observation is triggering in you. Or, guess what the other person is feeling, and ask. Naming the emotion, without moral judgment, enables you to connect in a spirit of mutual respect and cooperation. Perform this step with the aim of accurately identifying the feeling that you or the other person are experiencing in that moment, not with the aim of shaming them for their feeling or otherwise trying to prevent them from feeling as they do.
+
+![](https://i.imgur.com/C5lRrB3.png)
+
+* [Emoji fans take heart: Scientists pinpoint 27 states of emotion](https://news.berkeley.edu/2017/09/06/27-emotions/)
+  > 27 emotions: admiration, adoration, aesthetic appreciation, amusement, anger, anxiety, awe, awkwardness, boredom, calmness, confusion, craving, disgust, empathic pain, entrancement, excitement, fear, horror, interest, joy, nostalgia, relief, romance, sadness, satisfaction, sexual desire, surprise.
+* [**Feelings Inventory**](https://www.cnvc.org/training/resource/feelings-inventory)
+
+### Needs
+
+> State the need that is the cause of that feeling. Or, guess the need that caused the feeling in the other person, and ask. When our needs are met, we have happy, positive feelings; when they are not met, we have negative feelings. By tuning into the feeling, you can often find the underlying need. Stating the need, without morally judging it, gives you both clarity about what is alive in you or the other person in that moment.
+
+![](https://i.imgur.com/NAYrf6n.png)
+
+* [**Max-Neef Model of Human-Scale Development**](http://www.rainforestinfo.org.au/background/maxneef.htm)
+  > Max-Neef classifies the fundamental human needs as: **subsistence**, **protection**, **affection**, **understanding**, **participation**, **recreation** (in the sense of leisure, time to reflect, or idleness), **creation**, **identity and freedom**. Needs are also defined according to the existential categories of being, having, doing and interacting, and from these dimensions, a 36 cell matrix is developed which can be filled with examples of satisfiers for those needs.
+
+| **Fundamental Human Needs** | **Being (qualities)** | **Having (things)** | **Doing (actions)** | **Interacting (settings)** |
+| ------------- | ------------- | ------------- | ------------- | ------------- |
+| **Subsistence** | physical and mental health | food, shelter work | feed, clothe, rest, work | living environment, social setting |
+| **Protection** | care, adaptability, autonomy | social security, health systems, work | co-operate, plan, take care of, help | social environment, dwelling  |
+| **Affection** | respect, sense of humour, generosity, sensuality | friendships, family, relationships with nature | share, take care of, make love, express emotions | privacy, intimate spaces of togetherness | 
+| **Understanding** | critical capacity, curiosity, intuition | literature, teachers, policies | educational | analyse, study, meditate, investigate | schools, families universities, communities | 
+| **Participation** | receptiveness, dedication, sense of humour | responsibilities, duties, work, rights | cooperate, dissent, express opinions | associations, parties, churches, neighbourhoods |
+| **Leisure** | imagination, tranquillity, spontaneity | games, parties, peace of mind | day-dream, remember, relax, have fun | landscapes, intimate spaces, places to be alone |
+| **Creation** | imagination, boldness, inventiveness, curiosity | abilities, skills, work, techniques | invent, build, design, work, compose, interpret | spaces for expression, workshops, audiences | 
+| **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
+| **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
+
+### 4. Requests
+
+Make a concrete request for action to meet the need just identified. Ask clearly and specifically for what you want right now, rather than hinting or stating only what you don't want.
+
+
+
+---
 
 Transcribed by https://otter.ai

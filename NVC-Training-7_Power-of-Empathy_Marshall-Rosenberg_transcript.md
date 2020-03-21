@@ -1,10 +1,17 @@
-# Session #7 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# Power of Empathy - Session #7 - Nonviolent Communication Training - Marshall Rosenberg
+
+> I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
+
+
+[NVC Training Course Session 7 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7)
+
+[![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7)\
+
+
+## Transcript
 
 0:00  
-In this session,
-
-0:03  
-I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
+In this session, I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
 
 ## The power of empathy 
 

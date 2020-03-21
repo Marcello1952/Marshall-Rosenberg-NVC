@@ -1,4 +1,12 @@
-# Session #5 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# Intimate Relationships - Session #5 - Nonviolent Communication Training Course - Marshall Rosenberg
+
+> In this session, I'll be talking about how nonviolent communication can support us in deepening our intimate relationships. 
+
+[Nonviolent Communication 5 Marshall Rosenberg](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5)
+
+[![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5)\
+
+## Transcript
 
 0:01  
 In this session, I'll be talking about how nonviolent communication can support us in deepening our intimate relationships. And let's start with a dialogue that is likely to be heard in almost any intimate relationship, at least variations of it.

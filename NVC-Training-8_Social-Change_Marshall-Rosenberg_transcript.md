@@ -1,8 +1,18 @@
-# Session #8 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# Social Change - Session #8 - Nonviolent Communication Training - Marshall Rosenberg
 
 > In this session, I'll be focusing on how nonviolent communication can support our social change efforts. In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
 
-Now, let's take a look at social change, which for me, to a large extent, shows how to use nonviolent communication when we are communicating with gangs. Now some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. These other gangs, don't call themselves gangs, these other gangs that I'm worried about. Some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations. What I mean by these gangs that I'm worried about our organizations of people that have a big impact over our lives, and who are doing some things that I think contribute to great violence on the planet and great suffering. 
+> Let's take a look at social change, which for me, to a large extent, shows how to use nonviolent communication when we are communicating with gangs. Now some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. These other gangs, don't call themselves gangs. These other gangs that I'm worried about, some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations. What I mean by these gangs that I'm worried about our organizations of people that have a big impact over our lives, and who are doing some things that I think contribute to great violence on the planet and great suffering. 
+
+[Nonviolent Communication 8 Marshall Rosenberg](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8)
+
+[![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8)\
+
+## Transcript
+
+In this session, I'll be focusing on how nonviolent communication can support our social change efforts. In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
+
+Let's take a look at social change, which for me, to a large extent, shows how to use nonviolent communication when we are communicating with gangs. Now some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. These other gangs, don't call themselves gangs. These other gangs that I'm worried about, some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations. What I mean by these gangs that I'm worried about our organizations of people that have a big impact over our lives, and who are doing some things that I think contribute to great violence on the planet and great suffering. 
 
 So how can each of us develop our own power, become conscious of our power and use it to transform these structures, these organizations so that they serve life rather than threatened life. Now, this can be quite a challenge because the spirituality, language and means of influence that these gangs that I'm worried about, perpetuate, make it very hard for us to become conscious of our power and to use it. 
 

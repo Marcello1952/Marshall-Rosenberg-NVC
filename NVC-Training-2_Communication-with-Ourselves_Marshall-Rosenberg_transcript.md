@@ -1,4 +1,4 @@
-# Session #2 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# How We Communicate with Ourselves - Session #2 - Nonviolent Communication Training - Marshall Rosenberg
 **Working with anger, depression, self-judgement, and not giving away our power to cultural programming**
 
 

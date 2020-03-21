@@ -6,7 +6,7 @@
 
 > NVC aims to support change on three interconnected levels: within self, between others, and within groups and social systems. NVC is taught as a process of interpersonal communication designed to improve compassionate connection to others. Practitioners also emphasize that it can have many beneficial "side effects" as a spiritual practice, as a set of values, as parenting best practices, as a tool for social change, as a mediation tool, as an educational orientation, and as a worldview. - [Nonviolent Communication - wikipedia](https://en.wikipedia.org/wiki/Nonviolent_Communication)
 
-#### Main Course Videos
+#### Course Video and Audio
 
 * [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
   > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
@@ -29,10 +29,10 @@
 * [Introductory Resources](#introductory)
 * [Assumptions and Intentions](#assumptions-and-intentions)
 * [The Book](#the-book)
-* [Jakal and Giraffe Language](#jakal-and-giraffe-language)
 * [NVC Model](#nvc-model)
 * [Feelings Inventory](#feelings-inventory)
 * [Human Needs and Human-scale Development](#human-needs-and-human-scale-development)
+* [Jakal and Giraffe Language](#jakal-and-giraffe-language)
 * [Resources](#resources)
   * [A Mindful Approach to Nonviolent Communication](#mindful-approach-to-nonviolent-communication)
 * [Center for Non-Violent Communication](#center-for-non-violent-communication)
@@ -90,6 +90,7 @@
 * Increasing capacity for needs-based sharing of resources
 * Protective use of force
 
+[![](https://i.imgur.com/LKOKvVd.jpg)](https://www.mediateyourlife.com/handouts/)
 
 ## The Book
 
@@ -102,25 +103,10 @@
 #### Chapter 1 - NVC: Language of Life
 
 [Nonviolent Communication: A Language of Life](https://www.cnvc.org/training/resource/book-chapter-1)
- > NVC is founded on language and communication skills that strengthen our ability to remain human, even under trying conditions. It contains nothing new; all that has been integrated into NVC has been known for centuries. The intent is to remind us about what we already know—about how we humans were meant to relate to one another—and to assist us in living in a way that concretely manifests this knowledge.
- > 
- > NVC guides us in reframing how we express ourselves and hear others. Instead of habitual, automatic reactions, our words become conscious responses based firmly on awareness of what we are perceiving, feeling, and wanting. We are led to express ourselves with honesty and clarity, while simultaneously paying others a respectful and empathic attention. In any exchange, we come to hear our own deeper needs and those of others. NVC trains us to observe carefully, and to be able to specify behaviors and conditions that are affecting us. We learn to identify and clearly articulate what we are concretely wanting in any given situation. The form is simple, yet powerfully transformative.
 
-## Jakal and Giraffe Language
-
-* [Compassionate Communication by Marshall B. Rosenberg, Ph.D.](https://www.naturalchild.org/articles/marshall_rosenberg/compassionate_communication.html)
-  > At an early age, most of us were taught to speak and think Jackal. This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately it provokes defensiveness, resistance and counterattack. Giraffe bids us to speak from the heart, to talk about what is going on for us - without judging others. In this idiom, you give people an opportunity to say yes, although you respect no for an answer. Giraffe is a language of requests; Jackal is a language of demands.
-
-![](https://giraffeincblog.files.wordpress.com/2011/02/jakal-giraffe1.jpg)
-
-* [Giraffe Language: Changing Learned Communication Patterns](https://giraffeincblog.com/2011/02/25/jackal-and-giraffe-language/)
-  > Giraffe Language is interpersonal communication divided into two fundamental genres: “jackal” and “giraffe.” From infancy our culture teaches us to speak “jackal,” a language of demands that provoke defensiveness, resistance and counterattack. “giraffe,” on the other hand, is the language of requests that allows us to communicate with others in respectful, compassionate ways. Why giraffe? Because giraffes have the largest hearts of all land animals (up to 40 lbs!). Jackals, due to their low proximity to the ground, tend to see just what’s under their noses. Jackal language symbolizes short-sighted, self-protecting, limited communication.
-* [Non-violent communication: are you a jackal or a giraffe?](https://arielfreespirit.wordpress.com/2017/03/14/non-violent-communication-are-you-a-jackal-or-a-giraffe/)
-  > I’ve recently watched a quite lengthy but fun presentation by psychologist Marshall Rosenberg on non-violent communication. I highly recommend it: that man’s a stand-up comedian. Rosenberg coined the terms giraffe and jackal language in interpersonal communication, where the former is the language of the heart, the giraffe being the animal with the largest heart (up to 40 lbs), while the latter is a language of criticism and demands that only triggers counterattack and defensiveness. He describes an easy six-step approach to having productive communication as a giraffe in conflictual situations that I’ll try to do justice to.
-* [“GIRAFFE LANGUAGE” AND “JACKAL LANGUAGE”: A STUDY OF TWO OPPOSITE COMMUNICATION RITUALS](http://journalarticle.ukm.my/5338/1/V28_1_1-16.pdf) - Jurnal Komunikasi Malaysian Journal of Communication 
-  > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
-* [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
-
+> NVC is founded on language and communication skills that strengthen our ability to remain human, even under trying conditions. It contains nothing new; all that has been integrated into NVC has been known for centuries. The intent is to remind us about what we already know—about how we humans were meant to relate to one another—and to assist us in living in a way that concretely manifests this knowledge.
+> 
+> NVC guides us in reframing how we express ourselves and hear others. Instead of habitual, automatic reactions, our words become conscious responses based firmly on awareness of what we are perceiving, feeling, and wanting. We are led to express ourselves with honesty and clarity, while simultaneously paying others a respectful and empathic attention. In any exchange, we come to hear our own deeper needs and those of others. NVC trains us to observe carefully, and to be able to specify behaviors and conditions that are affecting us. We learn to identify and clearly articulate what we are concretely wanting in any given situation. The form is simple, yet powerfully transformative.
 
 ## NVC Model
 
@@ -212,6 +198,23 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 > Satisfiers also have different characteristics: they can be violators or destroyers, pseudosatisfiers, inhibiting satisfiers, singular satisfiers, or synergic satisfiers. Max-Neef shows that certain satisfiers, promoted as satisfying a particular need, in fact inhibit or destroy the possibility of satisfying other needs: eg, the arms race, while ostensibly satisfying the need for protection, in fact then destroys subsistence, participation, affection and freedom; formal democracy, which is supposed to meet the need for participation often disempowers and alienates; commercial television, while used to satisfy the need for recreation, interferes with understanding, creativity and identity - the examples are everywhere.
 > 
 > Synergic satisfiers, on the other hand, not only satisfy one particular need, but also lead to satisfaction in other areas: some examples are breast-feeding; self-managed production; popular education; democratic community organisations; preventative medicine; meditation; educational games.
+
+
+## Jakal and Giraffe Language
+
+* [Compassionate Communication by Marshall B. Rosenberg, Ph.D.](https://www.naturalchild.org/articles/marshall_rosenberg/compassionate_communication.html)
+  > At an early age, most of us were taught to speak and think Jackal. This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately it provokes defensiveness, resistance and counterattack. Giraffe bids us to speak from the heart, to talk about what is going on for us - without judging others. In this idiom, you give people an opportunity to say yes, although you respect no for an answer. Giraffe is a language of requests; Jackal is a language of demands.
+
+![](https://giraffeincblog.files.wordpress.com/2011/02/jakal-giraffe1.jpg)
+
+* [Giraffe Language: Changing Learned Communication Patterns](https://giraffeincblog.com/2011/02/25/jackal-and-giraffe-language/)
+  > Giraffe Language is interpersonal communication divided into two fundamental genres: “jackal” and “giraffe.” From infancy our culture teaches us to speak “jackal,” a language of demands that provoke defensiveness, resistance and counterattack. “giraffe,” on the other hand, is the language of requests that allows us to communicate with others in respectful, compassionate ways. Why giraffe? Because giraffes have the largest hearts of all land animals (up to 40 lbs!). Jackals, due to their low proximity to the ground, tend to see just what’s under their noses. Jackal language symbolizes short-sighted, self-protecting, limited communication.
+* [Non-violent communication: are you a jackal or a giraffe?](https://arielfreespirit.wordpress.com/2017/03/14/non-violent-communication-are-you-a-jackal-or-a-giraffe/)
+  > I’ve recently watched a quite lengthy but fun presentation by psychologist Marshall Rosenberg on non-violent communication. I highly recommend it: that man’s a stand-up comedian. Rosenberg coined the terms giraffe and jackal language in interpersonal communication, where the former is the language of the heart, the giraffe being the animal with the largest heart (up to 40 lbs), while the latter is a language of criticism and demands that only triggers counterattack and defensiveness. He describes an easy six-step approach to having productive communication as a giraffe in conflictual situations that I’ll try to do justice to.
+* [“GIRAFFE LANGUAGE” AND “JACKAL LANGUAGE”: A STUDY OF TWO OPPOSITE COMMUNICATION RITUALS](http://journalarticle.ukm.my/5338/1/V28_1_1-16.pdf) - Jurnal Komunikasi Malaysian Journal of Communication 
+  > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
+* [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
+
 
 ## Resources
 
