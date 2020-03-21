@@ -1,4 +1,4 @@
-# Marshall Rosenberg - Non Violent Communication - Study Guide
+# Marshall Rosenberg - Nonviolent Communication - Study Companion
 
 > We live in a world in which violence has become more and more accepted as the norm. It’s all around us. From wars between nations to crime on the street, and even imposing on our everyday existence, violence manifests itself both explicitly and implicitly. Yet for many people, the very idea of violence seems foreign. They are not involved in physical confrontations or abuses, and thus they believe that violence is not present. But the reality is that whenever we become disconnected from our compassionate nature, whenever our hearts are not devoid of hatred in all of its forms, we have a tendency to act in ways that can cause pain for everyone in our lives, including ourselves.
 > 
@@ -20,7 +20,7 @@
   * [Nonviolent Communication Training - Session #7](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s)
   * [Nonviolent Communication Training - Session #8](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s)
   * [Nonviolent Communication Training - Session #9](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s)
-* [Non Violent Communication NVC_International Intensive Training I.I.T._ by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
+* [Nonviolent Communication NVC_International Intensive Training I.I.T._ by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
 * [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
 
 ## TOC
