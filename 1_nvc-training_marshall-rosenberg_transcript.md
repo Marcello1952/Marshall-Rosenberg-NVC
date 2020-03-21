@@ -9,6 +9,7 @@
 
 ## Contents
 
+* [Notes](#notes)
 * [Introduction](#introduction)
 * [Origin](#origin)
 * [Process](#process)
@@ -16,7 +17,7 @@
 * [Subsequent Sessions](#subsequent-sessions)
 * [Conclusion](#conclusion)
 
-## Resources 
+## Notes
 
 * [Psychiatric Diagnoses Found to Be "Scientifically Meaningless"](https://www.technologynetworks.com/neuroscience/news/psychiatric-diagnoses-found-to-be-scientifically-meaningless-321555)
 * [Paulo Freire And The War On Brasil’s Public Education](https://www.brasilwire.com/paulo-freire-and-the-war-on-brasils-public-education/)
