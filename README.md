@@ -6,25 +6,9 @@
 
 > NVC aims to support change on three interconnected levels: within self, between others, and within groups and social systems. NVC is taught as a process of interpersonal communication designed to improve compassionate connection to others. Practitioners also emphasize that it can have many beneficial "side effects" as a spiritual practice, as a set of values, as parenting best practices, as a tool for social change, as a mediation tool, as an educational orientation, and as a worldview. - [Nonviolent Communication - wikipedia](https://en.wikipedia.org/wiki/Nonviolent_Communication)
 
-#### Course Video and Audio
-
-* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
-  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
-* [NVC Training Sessions 1-9 Marshall Rosenberg Nonviolent Communication](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
-  * [CNVC org Session #1 Introduction Nonviolent Communication Training Course Marshall Rosenberg](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s)
-  * [Training Session #2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s)
-  * [NVC Training Course Session #3 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s)
-  * [NVC Training Course Session #4 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)
-  * [NVC Training Course Session #5 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s)
-  * [NVC Training Course Session #6 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s)
-  * [Nonviolent Communication Training - Session #7](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s)
-  * [Nonviolent Communication Training - Session #8](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s)
-  * [Nonviolent Communication Training - Session #9](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s)
-* [Nonviolent Communication NVC_International Intensive Training I.I.T._ by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
-* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
-
 ## TOC
 
+* [Core Presentations of NVC by Marshall Rosenberg](#core-presentations---nvc---marshall-rosenberg)
 * [Marshall Rosenberg](#marshall-rosenberg)
 * [Introductory Resources](#introductory)
 * [Assumptions and Intentions](#assumptions-and-intentions)
@@ -35,7 +19,25 @@
 * [Jakal and Giraffe Language](#jakal-and-giraffe-language)
 * [Resources](#resources)
   * [A Mindful Approach to Nonviolent Communication](#mindful-approach-to-nonviolent-communication)
+  * [Non-defensive Communication](#non-defensive-communication)
 * [Center for Non-Violent Communication](#center-for-non-violent-communication)
+
+## Core Presentations - NVC - Marshall Rosenberg
+
+* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
+  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
+* [Nonviolent Communication Training — Sessions 1-9 — Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
+  * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
+  * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
+  * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
+  * [Session #4 The Dynamics of Empathy](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s) — [Transcript with References](NVC-Training-4_Dynamics-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-4-nonviolent-communication-training-course/id1497893802?i=1000464696651)
+  * [Session #5 Intimate Relationships](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s) — [Transcript with References](NVC-Training-5_Intimate-Relationships_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-5-nonviolent-communication-training-course/id1497893802?i=1000464696436)
+  * [Session #6 Authority: Respect vs Fear](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s) — [Transcript with References](NVC-Training-6_Authority--Respect-vs-Fear_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-6-nonviolent-communication-training-course/id1497893802?i=1000464696653)
+  * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
+  * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
+  * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
+* [Nonviolent Communication NVC_International Intensive Training I.I.T._ by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
+* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
 
 ## Marshall Rosenberg
 
@@ -215,7 +217,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
 * [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
 
-
 ## Resources
 
 [![](https://baynvc.org/wp-content/uploads/2015/06/NVC-Tree-of-Life.jpg)](https://baynvc.org/the-nvc-tree-of-life/)
@@ -241,7 +242,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
 * [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
 * [NVC Academy](https://www.youtube.com/user/nvcacademy)
-* [Say What You Mean: A Mindful Approach to Nonviolent Communication](https://www.youtube.com/watch?v=GpZMcFzO4eo) - [Oren Jay Sofer](https://www.youtube.com/channel/UCt7wz0QFnoI-CHNovcFs3Ug)
 
 ### Articles
 
@@ -258,6 +258,8 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 * [Say What You Mean](https://more.orenjaysofer.com) by Oren Jay Sofer
   > How to speak and listen more effectively--to communicate mindfully and improve all relationships--based on the author's unique synthesis of mindfulness practice combined with the principles of nonviolent communication.
+* [Oren Jay Sofer Youtube Channel](https://www.youtube.com/channel/UCt7wz0QFnoI-CHNovcFs3Ug)
+  * [Say What You Mean: A Mindful Approach to Nonviolent Communication](https://www.youtube.com/watch?v=GpZMcFzO4eo) 
 * [Ep. 37: Oren Jay Sofer — How to Improve Your Relationships with Better Communication](https://podcasts.apple.com/us/podcast/ep-37-oren-jay-sofer-how-to-improve-your-relationships/id1419082632?i=1000434587959)
   > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
 * [Ep. 86 - Oren Jay Sofer - Metta Hour with Sharon Salzberg](https://beherenownetwork.com/sharon-salzberg-metta-hour-ep-86-oren-jay-sofer/)
