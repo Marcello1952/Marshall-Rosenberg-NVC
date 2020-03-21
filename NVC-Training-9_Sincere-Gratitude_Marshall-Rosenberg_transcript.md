@@ -1,4 +1,4 @@
-# Sincere Gratitude - Session #9 - Nonviolent Communication Training - Marshall Rosenberg - Transcript 
+# Role of Sincere Gratitude - Session #9 - Nonviolent Communication Training - Marshall Rosenberg
 
 > In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what nonviolent communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
 
