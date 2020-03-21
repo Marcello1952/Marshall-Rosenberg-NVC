@@ -1,4 +1,12 @@
-# Session #6 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
+# Authority: Respect vs Fear - Session #6 - Nonviolent Communication Training - Marshall Rosenberg
+
+> In this session, I'll be talking about authority, both how we exercise authority, and how we experience it, and how certain institutions are set up to give us certain qualities of authority. nonviolent communication suggest that we get certain things clear when we're in a position of authority or when we're dealing with people in positions of authority. Some very important differentiations. 
+
+[NVC Training Course Session 6 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6)
+
+[![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6)\
+
+## Transcript
 
 0:00  
 In this session, I'll be talking about authority, both how we exercise authority, and how we experience it, and how certain institutions are set up to give us certain qualities of authority. nonviolent communication suggest that we get certain things clear when we're in a position of authority or when we're dealing with people in positions of authority. Some very important differentiations. 

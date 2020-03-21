@@ -1,4 +1,4 @@
-# Session #1 Introduction - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript
+# Introduction - Session #1 - Nonviolent Communication Training - Marshall Rosenberg
 
 > In this session, I'll be giving you an introduction to how I came about the process. I'll be talking about, sharing its purpose, and give you an outline of it. The process I call nonviolent communication.
 

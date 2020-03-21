@@ -1,5 +1,7 @@
-# Session #4 - Nonviolent Communication Training Course - Marshall Rosenberg - Transcript 
-**The dynamics of empathy as practiced within nonviolent communication**
+# Dynamics of Empathy - Session #4 - Nonviolent Communication Training - Marshall Rosenberg
+
+> In this session, I'll be discussing the dynamics of empathy as practiced within nonviolent communication. 
+
 
 [NVC Training Course Session #4 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)
 
