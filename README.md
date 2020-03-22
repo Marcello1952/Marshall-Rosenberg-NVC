@@ -1,10 +1,14 @@
 # Marshall Rosenberg - Nonviolent Communication - Study Companion
 
+[NVC Instruction Self-Guide](https://www.cnvc.org/online-learning/nvc-instruction-guide/nvc-instruction-guide)
+
 > We live in a world in which violence has become more and more accepted as the norm. It’s all around us. From wars between nations to crime on the street, and even imposing on our everyday existence, violence manifests itself both explicitly and implicitly. Yet for many people, the very idea of violence seems foreign. They are not involved in physical confrontations or abuses, and thus they believe that violence is not present. But the reality is that whenever we become disconnected from our compassionate nature, whenever our hearts are not devoid of hatred in all of its forms, we have a tendency to act in ways that can cause pain for everyone in our lives, including ourselves.
 > 
-> Nonviolence, then, does not refer to the mere absence of physical harm. It is a way of life that takes its lead from a compassionate and connected heart, and can guide us toward a more complete and happy way of being. As Mahatma Gandhi said, “Nonviolence is not a garment to be put on and off at will. Its seat is in the heart, and it must be an inseparable part of our very being.” It is a practice rooted in understanding, in living honestly, and in acting empathically with all beings. Of course this starts with the self. We must first understand and act empathically towards ourselves in order to impact the world in wonderful and compassionate ways. This means cultivating nonviolence in every action and being present to our own needs and feelings in each and every moment. - [NVC Instruction Self-Guide](https://www.cnvc.org/online-learning/nvc-instruction-guide/nvc-instruction-guide)
+> Nonviolence, then, does not refer to the mere absence of physical harm. It is a way of life that takes its lead from a compassionate and connected heart, and can guide us toward a more complete and happy way of being. As Mahatma Gandhi said, “Nonviolence is not a garment to be put on and off at will. Its seat is in the heart, and it must be an inseparable part of our very being.” It is a practice rooted in understanding, in living honestly, and in acting empathically with all beings. Of course this starts with the self. We must first understand and act empathically towards ourselves in order to impact the world in wonderful and compassionate ways. This means cultivating nonviolence in every action and being present to our own needs and feelings in each and every moment. 
 
-> NVC aims to support change on three interconnected levels: within self, between others, and within groups and social systems. NVC is taught as a process of interpersonal communication designed to improve compassionate connection to others. Practitioners also emphasize that it can have many beneficial "side effects" as a spiritual practice, as a set of values, as parenting best practices, as a tool for social change, as a mediation tool, as an educational orientation, and as a worldview. - [Nonviolent Communication - wikipedia](https://en.wikipedia.org/wiki/Nonviolent_Communication)
+[Nonviolent Communication - wikipedia](https://en.wikipedia.org/wiki/Nonviolent_Communication)
+
+> NVC aims to support change on three interconnected levels: within self, between others, and within groups and social systems. NVC is taught as a process of interpersonal communication designed to improve compassionate connection to others. Practitioners also emphasize that it can have many beneficial "side effects" as a spiritual practice, as a set of values, as parenting best practices, as a tool for social change, as a mediation tool, as an educational orientation, and as a worldview. 
 
 ## TOC
 
@@ -26,7 +30,7 @@
 
 * [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
   > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
-* [Nonviolent Communication Training — Sessions 1-9 — Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
+* [Nonviolent Communication Training Sessions 1-9 - Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
   * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
   * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
   * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
@@ -236,6 +240,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Strategy Cards](http://kommunikasie.nl/deckofneeds/StrategyCards.html) - What do you 'really' need? This is probably one of the most important questions asked by coaches, therapists, mediators and anyone who is interested in the well-being of others.
 * [Radical Compassion](http://radicalcompassion.squarespace.com/) - Integrating Nonviolent Communication
   * [Essence of NVC Recordings](http://radicalcompassion.squarespace.com/files/essence-of-nvc-recordings/) 
+* [Atlass of Emotions](http://atlasofemotions.org/)
 
 ### Additional Video
 
