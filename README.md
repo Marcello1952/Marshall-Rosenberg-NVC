@@ -40,7 +40,6 @@
   * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
   * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
   * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
-* [Nonviolent Communication NVC_International Intensive Training I.I.T._ by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
 * [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
 
 ## Marshall Rosenberg
@@ -240,13 +239,18 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Strategy Cards](http://kommunikasie.nl/deckofneeds/StrategyCards.html) - What do you 'really' need? This is probably one of the most important questions asked by coaches, therapists, mediators and anyone who is interested in the well-being of others.
 * [Radical Compassion](http://radicalcompassion.squarespace.com/) - Integrating Nonviolent Communication
   * [Essence of NVC Recordings](http://radicalcompassion.squarespace.com/files/essence-of-nvc-recordings/) 
-* [Atlass of Emotions](http://atlasofemotions.org/)
+* [The Nonviolent Communicator: an NVC Tool](http://www.nvccommunicator.com/) - An online tool to help you create a communication that honors the NVC structure, and helps you identify the emotions you are feeling. Based on the The 4-Part Nonviolent Communication (NVC) Process model developed by Marshall B. Rosenberg, Ph.D.
 
 ### Additional Video
 
 * [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
 * [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
 * [NVC Academy](https://www.youtube.com/user/nvcacademy)
+* [Marshall Rosenberg - Making Life Wonderful 1/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=LnAEF_TU1z4)
+* [Marshall Rosenberg - Making Life Wonderful 2/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=KdFc2B-tZLc)
+* [Marshall Rosenberg - Making Life Wonderful 3/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=Ljh6cwo0Jyw)
+* [Marshall Rosenberg - Making Life Wonderful 4/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=ZFSD5uXsmAw)
+* [Nonviolent Communication NVC International Intensive Training I.I.T. by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
 
 ### Articles
 
@@ -258,6 +262,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 * [Emotional Competency - Study Guide](http://www.emotionalcompetency.com/searchsite.htm)
   > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
+* [Atlass of Emotions](http://atlasofemotions.org/)
 
 #### Mindful Approach to Nonviolent Communication
 
