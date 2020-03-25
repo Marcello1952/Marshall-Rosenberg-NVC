@@ -7,27 +7,36 @@
 
 ## Contents
 
+* [Introduction](#introduction)
+
+
 ## Resources
 
 * [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now)
-* [Metaphors of Empathy - What is your metaphor of empathy?](http://cultureofempathy.com/Projects/z-Sort/Metaphors.htm)
+* [Metaphors of Empathy - What is your metaphor of empathy?](http://cultureofempathy.com/Projects/z-Sort/Metaphors.htm) - cultureofempathy.com
+* [See me Beautiful](https://www.youtube.com/watch?v=Evl6ATp0AgA) by Red Grammer
+* [Martin Buber’s I and Thou](http://aquestionofexistence.com/Aquestionofexistence/Introduction_to_Philosophy/Entries/2012/7/3_Martin_Bubers_I_and_Thou.html)
 
-## Transcript
+## Introduction
 
 0:00  
-In this session, I'll be discussing the dynamics of empathy as practiced within nonviolent communication. 
+In this session, I'll be discussing the **dynamics of empathy as practiced within nonviolent communication**. 
 
 As an image to help you understand what I mean by empathy, I'd like to refer to an image that was quoted in a book [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now). This person who wrote the book had heard me giving an explanation of empathy in a workshop and he incorporated it in his book. 
 
 The image goes this way. [I relate empathy to surfboard riding](http://cultureofempathy.com/Projects/z-Sort/Metaphors.htm). Imagine yourself getting up on a surfboard, this requires getting in touch with a certain energy. If you don't get on exactly, you can get knocked off. To me, empathy is somewhat like that. 
 
-#### Empathy is getting in touch with a life energy that's coming through another person. 
+#### Empathy is getting in touch with the life energy that's coming through another person. 
 
-As I have expressed in other sessions, the life energy that's coming through people at each moment, I have learned can best be described in words by referring to what that person is feeling and needing. the empathic connection that I am interested in sustaining is one, in which, I can stay connected to the life energy coming through another person. And that's what makes it like surfboard riding. 
+As I have expressed in other sessions, the life energy that's coming through people at each moment, I have learned can best be described in words referring to what that person is feeling and needing. The empathic connection that I am interested in sustaining is one, in which, I can stay connected to the life energy coming through another person. And that's what makes it like surfboard riding. 
 
-It's a challenge because many people, they don't know how to directly express what's alive in them. they use a rather choppy language, they often tell you what's alive in them with reference to what's wrong with you. When people need empathy the most, they're often expressing it in a pretty violent way. in that sense, it's very much like surfboard riding, how to get in Touch with this energy and flow with it. But the energy coming through people is for me a very beautiful divine energy. when I can really stay connected with it, I feel like I'm riding in a very precious flow of energy. 
+It's a challenge because many people don't know how to directly express what's alive in them. they use a rather choppy language, they often tell you what's alive in them with reference to what's wrong with you. 
 
-When we empathize, we focus on what's alive in people. I'm suggesting that when we see what's alive and people, we see a beautiful energy. There's a [song written by Red Grammer](https://www.youtube.com/watch?v=Evl6ATp0AgA) that touches me very much about this. And it really speaks powerfully to me about what happens when I do empathize. How no matter what the person is saying. It allows me to see the beauty in them.
+When people need empathy the most, they're often expressing it in a pretty violent way. In that sense, it's very much like surfboard riding. How to get in touch with this energy and flow with it? The energy coming through people is, for me, a very beautiful divine energy. When I can really stay connected with it, I feel like I'm riding in a very precious flow of energy. 
+
+When we empathize, we focus on what's alive in people. I'm suggesting, that when we see what's alive in people, we see a beautiful energy. 
+
+There's a [song written by Red Grammer](https://www.youtube.com/watch?v=Evl6ATp0AgA) that touches me very much about this. It really speaks powerfully to me about what happens when I do empathize. How no matter what the person is saying. It allows me to see the beauty in them.
 
 2:59  
 See me Beautiful, 
@@ -46,24 +55,32 @@ to see me shining through
 every thing I do
 and see me beautiful.
 
-#### let me outline some of the components of empathy. 
+## Components of Empathy
 
 4:10  
-Things that we need to learn to do, to stay connected to people, so we can really connect with the flow of energy that's coming through them. The most important part of empathy is the hardest. It involves our presence, our full presence to what is alive in this person, at this moment. 
+Let me outline some of the components of empathy, things that we need to learn to do, to stay connected to people, so we can really connect with the flow of energy that's coming through them. 
 
-[Martin Buber](en.wikipedia.org/wiki/Martin_Buber) the Israeli philosopher and psychotherapist says that presence is the most powerful gift one person can give to another... powerful gift and a precious gift. For when we give this gift to others, this gift of our presence, it is a major component of healing. 
+The most important part of empathy is the hardest. 
 
-It is a major component of the connection that's necessary for people to enjoy contributing to each other's well being. But it's not an easy thing to do to give this presence to others because as Buber also says, it requires bringing nothing from the past into the present. It requires seeing the present moment is a newborn infant that's never been before, will never be again. 
+It involves our presence, our full presence to what is alive in this person, at this moment. 
 
-if we start to think about what the person is saying, we lose this presence. And so all of the theories that we might bring into the present moment about this person because we might know that that will get in the way of our staying empathically connected. 
+[Martin Buber](https://en.wikipedia.org/wiki/Martin_Buber) the Israeli philosopher and psychotherapist says that **presence is the most powerful gift one person can give to another**. A powerful gift and a precious gift. When we give this gift to others, this gift of our presence, it is a major component of healing. 
 
-Or if you have studied psychology as I did for many years, at university, we're trained how to analyze people what leads them to behave as they do. That kind of intellectual training and analysis of what goes on historically that creates present problems that can get in the way of empathy. 
+It is a major component of the connection that's necessary for people to enjoy contributing to each other's well being. But it's not an easy thing to do, to give this presence to others, because as Buber also says, it requires bringing nothing from the past into the present. It requires seeing the present moment as a newborn infant that's never been before, will never be again. 
 
-One of the things that we need to stay clear about that is not to get mixed up intellectual understanding with empathy. intellectual understanding is the kind that I'm saying that I received at the university for intellectually understanding what are the kinds of things historically that can contribute to people developing certain problems. 
+If we start to think about what the person is saying, we lose this presence. All of the theories that we might bring into the present moment, about this person, will get in the way of our staying empathically connected. 
 
-*Even if this is an accurate assumption that these kinds of things are going on in the person, it means that I'm not connecting with this person is a unique person in this moment*. I'm bringing in theories and ideas about them. I am mixing up intellectual understanding with empathy. 
+If you have studied psychology as I did for many years, at university, we're trained how to analyze people what leads them to behave as they do. That kind of intellectual training and analysis, of what goes on historically that creates present problems, that can get in the way of empathy. 
 
-#### Another frequent misunderstanding of empathy is to confuse it with sympathy. 
+One of the things that we need to stay clear about, is **not to get mixed up intellectual understanding with empathy**. 
+
+Intellectual understanding of the kind I'm saying that I received at university, for intellectually understanding what are the things historically that can contribute to people developing certain problems. 
+
+*Even if this is an accurate assumption that these kinds of things are going on in the person, it means that I'm not connecting with this person as a unique person in this moment*. I'm bringing in theories and ideas about them. I am mixing up intellectual understanding with empathy. 
+
+## Empathy vs Sympathy
+
+**Another frequent misunderstanding of empathy is to confuse it with sympathy.** 
 
 For example, if a person starts to talk about some pain they're having in their life. The other person might say, Oh, I'm so sad that you're going through this suffering. that sadness and carrying on the part of this person that could probably be well received, if the person in pain first received empathy. 
 
@@ -71,7 +88,7 @@ But when we are giving a sympathetic response, we're talking about ourselves. Th
 
 An image that I use, to help keep empathy and sympathy separate, is to think about a time when I've had a headache or a toothache, and I have gotten involved in a really good book. what happens? We don't feel the pain, we don't feel the pain because our full attention is in the book. that full attention is what I'm calling empathy. 
 
-And it's not to be confused then, with, after the empathy was certainly many times going to have a very sympathetic response. And **I have found that people can enjoy that sympathetic response too, once they have had the empathic connection that they need. But to confuse these two things can be very painful.** 
+And it's not to be confused then, with, after the empathy was certainly many times going to have a very sympathetic response. **I have found that people can enjoy that sympathetic response too, once they have had the empathic connection that they need. But to confuse these two things can be very painful.** 
 
 A friend of mine helped me to see just how painful it can be when people mix up empathy and sympathy. She was dying of a very painful disease and Whenever I would come to her community, she would be likely to call me and say "Marshall come on over and play with my pain."
 
