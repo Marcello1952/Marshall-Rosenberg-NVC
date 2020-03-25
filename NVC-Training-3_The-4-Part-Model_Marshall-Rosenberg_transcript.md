@@ -10,7 +10,7 @@
 
 ## Contents
 
-* [Transcript](#transcript)
+* [Introduction](#introduction)
 * [Observation and Evaluation](#observation-and-evaluation)
 * [Feelings and Needs](#feelings-and-needs)
 * [Developing a Literacy of Needs](#developing-a-literacy-of-needs)
@@ -25,7 +25,7 @@
 * [4 Part NVC Model](#4-part-nvc-model)
 * [Resources](#resources)
 
-## Transcript
+## Introduction
 
 Many of us have been educated by an honesty that evolves from our system of justice, retributive justice which judges people as right or wrong, good or bad. With the attachment to, that if you are good, right, appropriate, etc, you deserve to be rewarded, but if you are bad, wrong, etc. You deserve to suffer, be punished, etc. 
 
