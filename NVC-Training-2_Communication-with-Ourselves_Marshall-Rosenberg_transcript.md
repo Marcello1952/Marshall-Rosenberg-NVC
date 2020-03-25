@@ -17,7 +17,7 @@
 * [Our feelings tell us what is happening to our needs](#our-feelings-tell-us-what-is-happening-to-our-needs)
 * [Judging yourself for judging yourself](#judging-yourself-for-judging-yourself)
 * [Training ourselves never to give our power away](#training-ourselves-never-to-give-our-power-away)
-* [References](#references)
+* [Resources](#resources)
 
 
 ## Introduction
@@ -528,7 +528,7 @@ This is one of the lessons, that nonviolent communication is designed to help us
 
 I hope that we educate ourselves that no matter what structures we're in, we stay connected to our own spirituality. Neither submit nor rebel. Then I hope that we all develop the skill that my son demonstrated, by no matter how people speak to us, whatever their titles, that we try to see their humaneness, and not to give them the power to make us submit or rebel. Not to give them the power to create shame on our part, depression on our part, but this requires some skills that we'll be talking about in subsequent sessions that will show us how to see other people's humaneness, even when they are speaking to us in a violent language, even if they have positions of power within institutions that do not share values of compassion.
 
-## References
+## Resources
 
 * [O J. Harvey - Publications - NeuroTree](https://neurotree.org/beta/publications.php?pid=490) - University of Colorado, Boulder
 * [Theologian Walter Wink Website](https://web.archive.org/web/20140104161930/http://walterwink.com/) - web.archive.org
