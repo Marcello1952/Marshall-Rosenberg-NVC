@@ -7,7 +7,10 @@
 
 ## Contents
 
-## Notes
+## Resources
+
+* [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now)
+* [Metaphors of Empathy - What is your metaphor of empathy?](http://cultureofempathy.com/Projects/z-Sort/Metaphors.htm)
 
 ## Transcript
 
@@ -16,7 +19,11 @@ In this session, I'll be discussing the dynamics of empathy as practiced within 
 
 As an image to help you understand what I mean by empathy, I'd like to refer to an image that was quoted in a book [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now). This person who wrote the book had heard me giving an explanation of empathy in a workshop and he incorporated it in his book. 
 
-The image goes this way. I relate empathy to surfboard riding. I say imagine yourself getting up on a surfboard, this requires getting in touch with a certain energy. If you don't get on exactly, you can get knocked off. To me, empathy is somewhat like that. Empathy is getting in touch with a life energy that's coming through another person. Now, as I have expressed in other sessions, the life energy that's coming through people at each moment, I have learned can best be described in words by referring to what that person is feeling and needing. the empathic connection that I am interested in sustaining is one, in which, I can stay connected to the life energy coming through another person. And that's what makes it like surfboard riding. 
+The image goes this way. [I relate empathy to surfboard riding](http://cultureofempathy.com/Projects/z-Sort/Metaphors.htm). Imagine yourself getting up on a surfboard, this requires getting in touch with a certain energy. If you don't get on exactly, you can get knocked off. To me, empathy is somewhat like that. 
+
+#### Empathy is getting in touch with a life energy that's coming through another person. 
+
+As I have expressed in other sessions, the life energy that's coming through people at each moment, I have learned can best be described in words by referring to what that person is feeling and needing. the empathic connection that I am interested in sustaining is one, in which, I can stay connected to the life energy coming through another person. And that's what makes it like surfboard riding. 
 
 It's a challenge because many people, they don't know how to directly express what's alive in them. they use a rather choppy language, they often tell you what's alive in them with reference to what's wrong with you. When people need empathy the most, they're often expressing it in a pretty violent way. in that sense, it's very much like surfboard riding, how to get in Touch with this energy and flow with it. But the energy coming through people is for me a very beautiful divine energy. when I can really stay connected with it, I feel like I'm riding in a very precious flow of energy. 
 

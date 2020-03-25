@@ -15,7 +15,7 @@
 * [Avoid criticism blame insults or demands](#avoid-criticism-blame-insults-or-demands)
 * [Subsequent Sessions](#subsequent-sessions)
 * [Conclusion](#conclusion)
-* [References](#references)
+* [Resources](#resources)
 
 ## Introduction
 
@@ -339,7 +339,7 @@ Now, how can something be so simple and so difficult? Well, it is simple. Nonvio
 
 **I look forward in our subsequent sessions to seeing how we can connect with nonviolent communication in a way that helps us to live our lives more fully.**
 
-## References
+## Resources
 
 * [Psychiatric Diagnoses Found to Be "Scientifically Meaningless"](https://www.technologynetworks.com/neuroscience/news/psychiatric-diagnoses-found-to-be-scientifically-meaningless-321555)
 * [Paulo Freire And The War On Brasil’s Public Education](https://www.brasilwire.com/paulo-freire-and-the-war-on-brasils-public-education/)
