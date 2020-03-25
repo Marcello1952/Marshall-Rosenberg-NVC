@@ -205,27 +205,29 @@ This is not easy because people usually do not have a language of needs. But thi
 
 Manfred Max neef and his colleagues evaluate the success of an economy in a radically different way than we do in the United States. 
 
-*In the United States, we measure the success of the measurements of the GNP, the gross national product, which essentially is how much money is made in certain areas.* 
+**In the United States, we measure the success of the measurements of the GNP, the gross national product, which essentially is how much money is made in certain areas.** 
 
-That system shows that it's successful when the rich get richer and the poor get poorer. 
+*That system shows that it's successful when the rich get richer and the poor get poorer.* 
 
 #### Manfred Max-Neef approach to economic success is based on whether human needs are met by all of the parties in the culture. 
 
-Since his whole system of economy is based on human needs, he's gone to some trouble to research what are the basic human needs that need to be fulfilled, if we're to have a safe, healthy, peaceful world. He comes up with nine needs. **the success of an economic system, as he would measure it, is how well these needs are met by the everyone in the population**. 
+Since his whole system of economy is based on human needs, he's gone to some trouble to research what are the basic human needs that need to be fulfilled, if we're to have a safe, healthy, peaceful world. He comes up with nine needs. 
 
-That really helped me because I had a list of about 50 words that I had gathered up to learn to develop my need vocabulary. I realized that I had several words that were Different ways of saying basically the same need and I realized he's probably right that we probably to just have about nine needs that we need to get real good at being able to express to other people. 
-l
+**The success of an economic system, as he would measure it, is how well these needs are met by the everyone in the population**. 
+
+That really helped me, because I had a list of about 50 words I had gathered up to develop my need vocabulary. I realized that I had several words that were different ways of saying basically the same need, and realized he's probably right that we have about nine needs we need to get real good at being able to express to other people. 
+
 Let me offer you what these nine needs are Manfred Max-Neef is talking about and I'll use more of my language, than his, but here are the needs that he comes up with. 
 
-First, **sustenance**, and by that he means the basic physical needs such as food, air, water, shelter. Most people that I work with, they're pretty good at expressing those needs. I guess we do need to learn those pretty quickly or we wouldn't survive very long. 
+First, **Sustenance**, and by that he means the basic physical needs such as food, air, water, shelter. Most people that I work with, they're pretty good at expressing those needs. I guess we do need to learn those pretty quickly or we wouldn't survive very long. 
 
-The next need that Manfred Max neef talks about is **safety**, protection. 
+The next need that Manfred Max Neef talks about is **Safety**, protection. 
 
-A third need **love**. A fourth need **empathy**. Fifth need **rest**, recreation play. Sixth need, **community** a warm community. Seventh need **creativity**. 
+A third need **Love**. A fourth need **Empathy**. Fifth need rest, **Recreation** play. Sixth need, **Community**, a warm community. Seventh need is **Creativity**. 
 
 And the last two needs are particularly important needs in terms of safety on our planet peace on our planet. 
 
-The eighth need is **autonomy**. Look in the newspaper on any given day and see how many wars are going on over this need of autonomy. 
+The eighth need is **Autonomy**. Look in the newspaper on any given day and see how many wars are going on over this need of autonomy. 
 
 We human beings have a strong need to choose our own way in life, and not to have it dictated by others. Tell us what we have to do. When they do that it threatens this very basic need of ours for autonomy. That need is alive in us from a very early age. Listen in on any family that has small children and you often hear autonomy wars going on. 
 
@@ -234,15 +236,15 @@ The parent will say to the child, "you must do this" and the child says, *No*. T
 (26:28)  
 The ninth need, Viktor Frankl, the Austrian psychiatrist describes as, perhaps, the most important need. Important in the sense of our living our lives fully. He calls this a [need for meaning](https://www.intellectualtakeout.org/article/viktor-frankls-guide-living-life-meaning), a need for **purpose**. When I'm using this word, I often describe it this way, our need to contribute to life, to see how our efforts have made people's lives richer life on the planet richer. 
 
-What I recommend to people is to *get those nine needs into your own vocabulary. They may not be the words, I just gave. Words that you, or the people that you're communicating with might use.* 
+What I recommend to people is to *get those nine needs into your own vocabulary. They may not be the words I just gave. Words that you, or the people that you're communicating with might use.* 
 
 For each of these nine, try to find words that describe that in a way that you resonate to that really captures for you that need. 
 
 Then **when you've developed a need vocabulary that works for you, and you may see that it may not work for the others with whom you are communicating with daily.** For example, if you have a three year old in your house, the word autonomy may not work for the child, even though you may know what this word means and it resonates to your need for autonomy. 
 
-The three year old may not use the word autonomy but they have the need for autonomy because all human beings have the same needs. That's very important, to be conscious that
+The three year old may not use the word autonomy but they have the need for autonomy because all human beings have the same needs. 
 
-#### all human beings have the same needs. 
+#### That's very important. To be conscious that *all human beings have the same needs*. 
 
 Even though we may have different vocabularies for describing these needs, everybody has the same needs. To really connect in a way that promotes compassion between ourselves and others, we need to be able to express needs in a language that the other people can resonate to. 
 
@@ -258,39 +260,46 @@ Even though we may have different vocabularies for describing these needs, every
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
 | **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
 
+[Max-Neef Model of Human-Scale Development](http://www.rainforestinfo.org.au/background/maxneef.htm)
 > Max-Neef classifies the fundamental human needs as: **subsistence**, **protection**, **affection**, **understanding**, **participation**, **recreation** (in the sense of leisure, time to reflect, or idleness), **creation**, **identity and freedom**. Needs are also defined according to the existential categories of being, having, doing and interacting, and from these dimensions, a 36 cell matrix is developed which can be filled with examples of satisfiers for those needs.
-> - [Max-Neef Model of Human-Scale Development](http://www.rainforestinfo.org.au/background/maxneef.htm)
 
-So take this list of nine need words that you resonate to the words describe the needs for you. Then, if you're living with a three year old figure out how to say each of these needs in a way that the three year old can resonate to, if you're working with street gang members learn how to save these needs in a language that they can resonate to, if you're working with college professors translated into their language. 
+So take this list of nine need words that you resonate to the words describe the needs for you. Then, if you're living with a three year old figure out how to say each of these needs in a way that the three year old can resonate to. If you're working with street gang members, learn how to say these needs in a language that they can resonate to. If you're working with college professors, translate it into their language. 
 
 In other words, if we really want to connect with human beings in a way in which we enjoy each other and enjoy contributing to each other's well being we need to be very literate with the language of needs. 
 
 ### Evaluation that promotes compassionate giving
 
-> Anytime we find ourselves wanting to criticize, to translate that criticism into our needs that isn't being met, we are far more likely to get our needs met, when we speak our needs than when we tell people what's wrong with them. 
+> Anytime we find ourselves wanting to criticize, when we translate that criticism into our needs that isn't being met, we are far more likely to get our needs met, when we speak our needs than when we tell people what's wrong with them. 
 
-What I'm saying is that we evaluate behavior best, according to the principles of nonviolent communication where best means in a way that promotes compassionate giving, people enjoying learning from each other, that we are much more likely to promote connections of that sort, speaking clear observations, feelings and needs.
+We evaluate behavior best, according to the principles of nonviolent communication, in a way that promotes compassionate giving, where people enjoying learning from each other. 
+
+We are more likely to promote connections of that sort, speaking clear observations, feelings, and needs.
 
 (29:51)    
 
-#### avoid words like right wrong, good, bad, appropriate, inappropriate, etc
+#### Avoid words like right wrong, good, bad, appropriate, inappropriate, etc
+#### Especially words like should *shouldn't*, *have to*, *can't*
 
-Especially words like should Shouldn't have to can't. Now when I say this, very often when I'm working with teachers, they get very uncomfortable because they can't imagine how they can do their job as teachers without using words like right, wrong, good, bad, appropriate, inappropriate. 
+When I say this, very often when I'm working with teachers, they get very uncomfortable because they can't imagine how they can do their job as teachers without using words like right, wrong, good, bad, appropriate, inappropriate. 
 
-For example, I was working with teachers in one school system on the eastern seaboard in the United States. The teachers were very confused. They said to me, Marshall, how can we go through a day without telling students whether what they're doing is right or wrong? Our job as teachers is to evaluate students and to judge their performance. I said yes, judgments and evaluations are very helpful if they're a language of life, but when we put it in the form of a language of right, wrong, good bad, that's promoting a system of domination that I believe is contributing to violence on the planet. 
+For example, I was working with teachers in one school system on the eastern seaboard in the United States. The teachers were very confused. They said to me, Marshall, how can we go through a day without telling students whether what they're doing is right or wrong? Our job as teachers is to evaluate students and to judge their performance. 
 
-Well, they often need me to show them concretely in the situations in which they're working what this would look like. For example, in this school system that I was working with, they wanted me to take over several classes for a day. They could see how I would evaluate students using nonviolent communication. 
+I said yes, judgments and evaluations are very helpful, if they're a language of life. But when we put it in the form of a language of right, wrong, good bad, that's promoting a system of domination that I believe is contributing to violence on the planet. 
 
-I took over some math classes and some reading classes, etc, for the day. School system had me followed around all day, with a video camera making the videotape of what I did with the students so that this could be used to train the teachers and how to evaluate according to nonviolent communication, principles of evaluation. Worked with students for about four hours that day in different classes. 
+Well, they often need me to show them concretely in the situations in which they're working what this would look like. For example, in this school system that I was working with, they wanted me to take over several classes for a day, so they could see how I would evaluate students using nonviolent communication. 
 
-I went back to that school system A month later, and the superintendent of schools was talking to me before the day started and he said, that video tape you made Marshall last time showing the teachers other ways of evaluating besides using words like good, bad, normal, abnormal boy that has really motivated a lot of teachers to want to change their way of communicating. 
+I took over some math classes, and some reading classes, for the day. The school system had me followed around with a video camera, making the videotape of what I did with the students so that this could be used to train the teachers in how to evaluate according to nonviolent communication, principles of evaluation. I worked with students for about four hours that day in different classes. 
 
-You know, we made four hours of video tape following you around Marshall, but we only use the first 10 minutes. But you did in that first 10 minutes with a young boy really motivates teachers to change their language. I couldn't remember what happened in that first 10 minutes so he got the video tape and showed it to me. Here's what happened. 
+I went back to that school system a month later, and the superintendent of schools was talking to me before the day started and he said, that video tape you made Marshall last time showing the teachers other ways of evaluating besides using words like good, bad, normal, abnormal boy that has really motivated a lot of teachers to want to change their way of communicating. 
 
-I came across a young boy who had just added up a page of a arithmetic problems that the teacher had given them to add up. This boy was nine years old. I saw that he added up nine plus six equals 14. Here's how I evaluated what he did. I said to him, Hey, buddy, I'm confused about how you got this answer. I get a different one. He started to cry.
+You know, we made four hours of video tape following you around Marshall, but we only use the first 10 minutes. What you did in that first 10 minutes with a young boy really motivates teachers to change their language. I couldn't remember what happened in that first 10 minutes so he got the video tape and showed it to me. Here's what happened. 
+
+I came across a young boy who had just added up a page of a arithmetic problems that the teacher had given them to add up. This boy was nine years old. I saw that he added up nine plus 6 equals 14. Here's how I evaluated what he did. I said to him, Hey, buddy, I'm confused about how you got this answer. I get a different one. He started to cry.
 
 (33:27)    
-I said, Hey, what's happening? Why are you crying? He said, I got it wrong. Notice I didn't say he had it wrong. I told him that I was confused because I had a different answer. I was wondering how he got his. But he'd already been trained for three years in a school system. It makes people focus their attention on how they're judged by authority. My experience is this takes the joy out of learning. When we are judged in a way that implies we're stupid. If we don't get it right. We're intelligent if we do. Notice my evaluation enabled me to be honest, I was confused, I did get a different answer. I wanted to see how he got his and I wanted to be able to show him another way of doing it. His way and my way, we're different. 
+I said, Hey, what's happening? Why are you crying? He said, I got it wrong. Notice I didn't say he had it wrong. I told him that I was confused because I had a different answer. I was wondering how he got his. But he'd already been trained for three years in a school system that makes people focus their attention on how they're judged by authority. My experience is this takes the joy out of learning when we are judged in a way that implies we're stupid if we don't get it right, and we're intelligent if we do. 
+
+Notice my evaluation enabled me to be honest. I was confused, I did get a different answer. I wanted to see how he got his and I wanted to be able to show him another way of doing it. His way and my way were different. 
 
 In nonviolent communication, we not only want to evaluate without any criticism or blame. We also want to evaluate without any praise or compliments. I'll be talking more about that. In the ninth session, when we talk about how to celebrate and express sincere gratitude. I hope then to show what danger exists in using praise and compliments as well as words that criticize and blame. 
 
@@ -298,21 +307,21 @@ In nonviolent communication, we not only want to evaluate without any criticism 
 
 **In nonviolent communication the focus of our attention is on needs.** 
 
-> We want people to see how their behavior affects human needs, whether it fulfills their own needs or does, whether it fulfills other's needs or not. It's when we are connected in this way to what everyone is needing that we have the greatest chance of finding ways of getting everybody's needs met. But when any criticism gets into the dialogue, any words that imply wrong, bad, stupid, etc. Instead of ending and compassionate giving, were far more likely to end in alienation, wars, etc. 
+> We want people to see how their behavior affects human needs, whether it fulfills their own needs or not, whether it fulfills other's needs or not. It's when we are connected, in this way, to what everyone is needing that we have the greatest chance of finding ways of getting everybody's needs met. 
 
-After we have made clear expressions of what's alive in us, namely what we're observing what we're feeling what we're needing. 
+When any criticism gets into the dialogue, any words that imply wrong, bad, stupid, etc. Instead of ending and compassionate giving, were far more likely to end in alienation, wars, etc. 
 
-#### If our need is not getting met, then we need to end on a clear request. 
+**After we have made clear expressions of what's alive in us, namely what we're observing, what we're feeling, what we're needing, if our need is not getting met, then we need to end on a clear request.**
 
 *This request needs to make explicit what response we're wanting from the person we're speaking with at this moment.* 
 
 For example, a teacher gave me this real example from her classroom. She told me that a boy had been tapping on his desk while she was talking, and this was disrupting her. 
 
-She told me that, Marshall, you know, I did just what you taught us to do in the other sessions, I told him, that when I hear you tapping on the desk, I feel frustrated, because I have a need to communicate with the students right now, and this is making it hard for me. 
+She told me, Marshall, I did just what you taught us to do in the other sessions. I told him that when I hear you tapping on the desk, I feel frustrated, because I have a need to communicate with the students right now, and this is making it hard for me. 
 
 Well, *she had done a very good job of expressing what she was observing, feeling and needing*. But notice, *she didn't say what she wants*. 
 
-I said, I don't hear a request in there. She said, I did, that's right. I forgot, I did make a request. 
+I said, I don't hear a request in there. She said, that's right. I forgot, I did make a request. 
 
 I said, What was the request? 
 
@@ -324,47 +333,49 @@ She said he kept on his desk.
 
 **So she told him what she didn't want.** She didn't want him tapping on the desk. 
 
-#### in nonviolent communication, we tell people what we do want, rather than what we don't want. 
+#### In nonviolent communication, we tell people what we do want, rather than what we don't want. 
 
-So if she had ended on a request of the kind that were advocating and nonviolent communication, she would have said, Would you be willing to lay your pencil down on the desk, without tapping. **You can add that what you don't want, after you've said what you do.** So we want to make clear request after we have made our needs clear. We need to also know the difference between a wish and a clear request. A wish says generally what we would like to happen in the future.
+So if she had ended on a request of the kind that were advocating and nonviolent communication, she would have said, Would you be willing to lay your pencil down on the desk, without tapping. **You can add that what you don't want, after you've said what you do.** We want to make clear request after we have made our needs clear. We need to also know the difference between a wish and a clear request. A wish says generally what we would like to happen in the future.
 
 (38:11)    
 So if she had said to him, I would like more awareness on your part of how this is disrupting the class. That would be a wish she would be telling him what she wants him to be aware of, but not telling him what she wants him to do at this moment. 
 
-In nonviolent communication when we've expressed a need that isn't met, we end on a clear request of what we want back at this moment. The request needs to be an action language. We cannot use vague language like I want you to help me What does that mean and different connections it could mean quite different things. 
+In nonviolent communication when we've expressed a need that isn't met, we **end on a clear request** of what we want back at this moment. The request needs to be an action language. 
 
-So we have to say not I want you to help me with this problem. You have to say I'd like you to tell me what you think would get my needs met in this situation. Tell me is much more specific than help me. 
+We cannot use vague language like I want you to help me. What does that mean? In different contexts, it could mean quite different things. 
+
+So we have to say, not, I want you to help me with this problem. You have to say, tell me what you think would get my needs met in this situation. Tell me is much more specific than help me. 
 
 ### Requests that don't sound like demands
 
-It's not only important that we make very clear request and clear action language. **It's very important that we present the request as a request and not as a demand.** Because if people hear demands, it takes much of the joy away from doing anything. It is much more likely to provoke resistance, then cooperation. 
+It's not only important that we make very clear request and clear action language. **It's very important that we present the request as a request and not as a demand.** Because if people hear demands, it takes much of the joy away from doing anything. It's much more likely to provoke resistance, than cooperation. 
 
-Now, it's hard for people not to hear demands, especially if they have been in situations with authorities, who think it's their job to make demands and who tell people you either do it or else. Or parents who say, Please, maybe in a very nice way But the child has experienced from the past that if they don't do it in some way or other they will be blamed or punished. Therefore, we need to make our request in a way that people trust that it is a request and not a demand. 
+Now, it's hard for people not to hear demands, especially if they have been in situations with authorities who think it's their job to make demands and who tell people, "either do it or else". Or parents who say, "Please", maybe in a very nice way, but the child has experienced from the past that if they don't do it, in some way or other, they will be blamed or punished. Therefore, we need to make our request in a way that people trust that it is a request and not a demand. 
 
-I was asked to do some training of a group of 40 students in one school system. These students were labeled as socially and emotionally maladjusted. Now, of course, if we had been doing training in that school system before, we would have tried to make people clear about such language it leads to self fulfilling prophecies. When you label students in a certain way, instead of getting what you would like and relationship to these students, your labels are likely to create exactly what you were diagnosing them as. 
+I was asked to do some training of a group of 40 students in one school system. These students were labeled as socially and emotionally maladjusted. Now, of course, if we had been doing training in that school system before, we would have tried to make people clear about such language, it leads to self fulfilling prophecies. When you label students in a certain way, instead of getting what you would like in relationship to these students, your labels are likely to create exactly what you were diagnosing them as. 
 
-I knew that since these students were in a class And they knew they were labeled as socially and emotionally maladjusted. I could imagine it was going to be a pretty challenging day. It started off challenging. I walked into the room, and about half of the class was hanging out the window, screaming obscenities at their friends in a courtyard below. I had to raise my voice to be heard. I made a request. 
+Since these students were in a class where they were labeled as socially and emotionally maladjusted, I could imagine it was going to be a pretty challenging day. It started off challenging. I walked into the room, and about half of the class was hanging out the window, screaming obscenities at their friends in a courtyard below. I had to raise my voice to be heard. I made a request. 
 
-I said, Excuse me, excuse me. I would appreciate it. If you would each come over and sit down. I'd like to tell you who I am. What I'd like to do today. I'd say maybe half the class came over, and there had been so much noise. I wasn't sure that everyone had heard me. I repeated my request. This time, everybody came over with the exception of two young men. 
+I said, Excuse me, excuse me. I would appreciate it, if you would each come over and sit down. I'd like to tell you who I am. What I'd like to do today. I'd say maybe half the class came over, and there had been so much noise. I wasn't sure that everyone had heard me. I repeated my request. This time, everybody came over with the exception of two young men. 
 
-As my luck would have it, the two young men that didn't come over were the biggest ones in the class. I said to them, would one of you two gentlemen, please tell me what you heard me say? And one of them responded by saying you said we had to come over and sit down. See, he was hearing a demand. I made a request. He was hearing a demand. I said, Sir, I've learned to use sir, with people who have biceps like he did. 
+As my luck would have it, the two young men that didn't come over were the biggest ones in the class. I said to them, would one of you two gentlemen, please tell me what you heard me say? And one of them responded, 'you said we had to come over and sit down'. See, he was hearing a demand. I made a request. He was hearing a demand. I said, Sir, I've learned to use sir, with people who have biceps like he did. 
 
 I said, Sir, would you be willing to tell me **how I could let you know what I was wanting, so it didn't sound like I was telling you what you had to do**.
 
 (42:34)    
 He said, *huh?*
 
-I said, Could you tell me how I could let you know what I wanted in a way that didn't sound like I didn't care equally to what you want? 
+I said, Could you tell me how I could let you know what I wanted in a way that didn't sound like I didn't care equally about what you want? 
 
 He stopped for a moment. I don't know. 
 
-I said just what's happening between you and me right now is much of what I want to talk about today. I believe that folks can get along much better if they can just say to one another what they would like without making Any demands. That's why I wanted to know how I could let you know what I wanted in a way that didn't sound like a demand. Hearing that, would you be willing to come on over and see how we could communicate in this way. That intrigued him and the two came over and we had a very productive day. 
+I said just what's happening between you and me right now is much of what I want to talk about today. I believe that folks can get along much better, if they can just say, to one another, what they would like without making any demands. That's why I wanted to know how I could let you know what I wanted in a way that didn't sound like a demand. Hearing that, would you be willing to come on over and see how we could communicate in this way. That intrigued him and the two came over and we had a very productive day. 
 
 **With many people, this is very hard to get them to trust that our requests are requests and not demands** to whatever degree people carry memories, that when they don't do what other people want. They have been criticized guilted blamed punished. It becomes very hard to trust that when somebody says what they would like that it is a request and not a demand. 
 
-> In nonviolent communication, we say what is alive in us, what we're observing, feeling, and needing. We make clear requests, presented as best we can in a way that people can trust it is a request and not a demand. 
+> In nonviolent communication, we say what is alive in us, what we're observing, feeling, and needing. We make clear requests presented, as best we can, in a way that people can trust it is a request and not a demand. 
 
-Now, some messages are really hard to say, in a non violent communication way. Some of these messages are very important to be able to say, for example, the word no, 
+Now, some messages are really hard to say in a non violent communication way. Some of these messages are very important to be able to say. For example, the word no.
 
 ### Saying No
 
@@ -374,11 +385,11 @@ How do you say "no", in a way that's in harmony with nonviolent communication?
 
 **First.** When somebody requests something of you, to say no in nonviolent communication, **we begin by showing that we receive the other person's request as a gift.** They're giving us a gift when they ask us to do something. It gives us a chance to contribute to their well being. How do we do this? 
 
-Largely non verbally, by how we respond to what they've asked us to do, that our nonverbal behavior will often tell people, whether we're hearing it as a demand criticism or as a request that gives us a chance to contribute to their well being. Receiving what they have said is a gift is the first step in how to say no. 
+Largely non verbally, by how we respond to what they've asked us to do, our nonverbal behavior will often tell people whether we're hearing it as a demand, criticism, or as a request that gives us a chance to contribute to their well being. Receiving what they have said is a gift is the first step in how to say no. 
 
 **The second step**, is to be aware that "no" is a poor expression of a need. Anytime a person says no, they're basically saying I have a need that keeps me from wanting to do what you have requested at this moment. **To say no in a nonviolent communication way. We say the need that keeps us from saying yes.** 
 
-If a person asked us if we would be willing to help them with cleaning up some job around the house, to say the need behind the no might go like this, he might say right now I'm really very tired and have a need for some rest. That's saying what need keeps you at that moment, wanting to do what the other person has requested. 
+If a person asked us if we would be willing to help them with cleaning up some job around the house, to say the need behind the no might go like this, he might say "right now I'm really very tired and have a need for some rest." That's saying what need keeps you, at that moment, from wanting to do what the other person has requested. 
 
 **The third ingredient** in saying no in a nonviolent communication way, is to **end on a request that searches for a way to get everybody's needs met.** That might sound like this in the situation where the person has asked you for some help and cleaning up the house. After saying, I'm really fatigued right now and have a need for some rest. But it'd be okay if we did this in 30 minutes after I had a chance to get some rest. 
 
@@ -396,20 +407,19 @@ Or would you be willing to ask, and then I might say someone else around the hou
 
 ### More Constructive than Criticism
 
-
 **How do we let people know when they're using more words than we want to hear?** 
 
 How do we do that without criticizing? Of course, we all know how to interrupt another person when they're using more words when we want to hear in a violent way. We wait for them to breathe, and then we say quickly, excuse me, I just remembered my house is on fire, and we get out of the conversation as quickly as we can. Or we change the topic do anything so we don't have to listen to more words. 
 
 > In nonviolent communication, we stop the other person when we've heard more words, and we want to hear and let them know what our needs are, excuse me, but I'm impatient right now cuz I have a need for, and then we tell them what needs are not being met by the amount of words the other person is using. Again, we end on a clear request that searches for a way to get our needs met, and the other person's needs met. 
 
-One reason I have found that people use more words than anybody wants to hear is that the speaker is not conscious of what they want back. They don't understand what their own present request is, and so they keep going on and on. Trying to get what they want when they're not even too sure what they want in the conversation. 
+One reason I have found that people use more words than anybody wants to hear is that the speaker is not conscious of what they want back. They don't understand what their own present request is, and so they keep going on and on. Trying to get what they want, when they're not even too sure what they want in the conversation. 
 
-I can recall a very close friend that I had would often tell me at great length things that were happening to her in her workplace. One day, I said to her, you know, I find it hard to follow you, and I hear you telling all of this, but I'm not sure what you're wanting back from me. Could you tell me what your request is of me, when you are telling me these things that happened to you at work? 
+I can recall a very close friend that I had would often tell me at great length things that were happening to her in her workplace. One day, I said to her, you know, I find it hard to follow you, when I hear you telling all of this, but I'm not sure what you're wanting back from me. Could you tell me what your request is of me, when you are telling me these things that happened to you at work? 
 
 She thought for a moment and she said, "*I thought it was important to say*" 
 
-I say, "*I'm confident you thought it was important to say or you wouldn't have said it. But I'm not asking whether you felt it was important. I'm asking what you want back from me when you tell me these things.*" 
+I say, "*I'm confident you thought it was important to say or you wouldn't have said it. I'm not asking whether you felt it was important. I'm asking what you want back from me when you tell me these things.*" 
 
 She's thought for a moment, and says "*I just wanted to say it. I don't want anything from you.*" 
 
@@ -419,20 +429,21 @@ She says, "do and I'll kill you."
 
 She knew I was joking when I said, "Can I read while you say that?", but I wanted her to see, if you speak to people and you're not clear what you want back from them, it takes the energy from the conversation. It makes it confusing to know how to follow it, makes it less interesting. 
 
-She later told me that this was very helpful for her that I mentioned this. She could see why so many people didn't like talking with her, and that she used far more words than she herself enjoyed using, but she just didn't know how to get clear what she wanted back. 
+She later told me that this was very helpful for her that I mentioned this. She could see why so many people didn't like talking with her and that she used far more words than she herself enjoyed using, but she just didn't know how to get clear what she wanted back. 
 
-**As a result of our conversation, she started to become conscious of what she wanted back before she said anything.** And then she found that she would use far less words, and much more often, get what she wanted in the conversation. 
+**As a result of our conversation, she started to become conscious of what she wanted back before she said anything.** Then she found that she would use far less words, and much more often, get what she wanted in the conversation. 
 
-This is a very important part of nonviolent communication that when we reveal our honesty, what's alive in us, when we say what's going, on to be conscious of what we want back. 
+This is a very important part of nonviolent communication that when we reveal our honesty, what's alive in us, when we say what's going on, to be conscious of what we want back. 
 
 My prediction is, the more conscious you are what you want back in the form of what you're requesting of your listener, you use fewer words and get more understanding. 
+
 ### Difficult needs to get clear
 
 **Some needs are not too easy for people to get clear, what they do want back, to get these needs met.** 
 
 Very often, these are very important needs to get met. 
 
-For example, I was working with a father and his 15 year old son, and this father was not getting his need for respect met in relationship the son.
+For example, I was working with a father and his 15 year old son, and this father was not getting his need for respect met in relationship with the son.
 
 (52:02)    
 So I said to the Father, the son was sitting there, I said, 
@@ -441,21 +452,25 @@ So I said to the Father, the son was sitting there, I said,
 
 *I want him to respect me*. 
 
-I said, *but in nonviolent communication, **we use the word respect more as a need, not as a request** that doesn't really say clearly what you want him to do.* 
+I said, *but in nonviolent communication, **we use the word respect more as a need, not as a request** that doesn't say clearly what you want him to do.* 
 
 The son said, "*Yes. I think I'm respecting you. What do you want from me to show respect?*" 
 
-The father hesitated. It wasn't clear to him what he wanted back, when his need for respect wasn't met. Then in a few moments, the father got it. 
+The father hesitated. It wasn't clear to him what he wanted back when his need for respect wasn't met. Then in a few moments, the father got it. 
 
 He started to get clear of something that really subsequently helped immensely and improving his relationship with his son. 
 
-The father said to me, "OK, Marshall, I think I'm seeing what you're trying to help us to see as it What's that. I see now what I want him to do to meet I need for respect." 
+The father said to me, "OK, Marshall, I think I'm seeing what you're trying to help us to see. 
+
+I said, "What's that?" 
+
+"I see now what I want him to do, to meet my need for respect." 
 
 And I said, "What's that?" 
 
-"I want him to jump when I say jump, and smile because he feels like jumping." 
+"*I want him to jump when I say jump, and smile because he feels like jumping*." 
 
-So the father could see that when he said, I want you to respect me, he really wanted obedience. He could see then why the son reacted so negatively when he would ask for things. Very important needs like respect, very important to know clearly what we do want from people. Without being clear about that we often play some very oppressive games. 
+So the father could see that when he said, I want you to respect me, he really wanted obedience. He could see, then, why the son reacted so negatively when he would ask for things. It's very important with needs like respect, it's very important, to know clearly what we do want from people. Without being clear about that we often play some very oppressive games. 
 
 For example, **let's take another very important need to make this point clear how, by not having clear request, we often get involved in very oppressive forms of interpersonal relationships.**
 
@@ -467,7 +482,7 @@ For example, **let's take another very important need to make this point clear h
 (53:51)    
 I was working with a couple that was having problems in their relationship. I asked the wife, what needs of yours and not getting met? 
 
-And she said, my need for love isn't getting met. 
+She said, my need for love isn't getting met. 
 
 And the husband immediately said, but I love you. 
 
@@ -477,12 +492,11 @@ It's not always an easy need for us to get clear what our requests are from the 
 
 Research shows that different people have quite different requests to get their need for love met. *What will meet one person's need for love doesn't necessarily meet another's need for love.* So I said to the wife, so what specifically would you like him to do to meet your need for love? 
 
-she thought through for a few moments and she said to her husband "well you know", 
+She thought through for a few moments and she said to her husband, "well, you know"
 
-and he said, "No, I don't know if I knew I'd do it."
+He said, "No, I don't know if I knew I'd do it."
 
-She said, 
-Well, it's not easy to say so clearly what I want. 
+She said, Well, it's not easy to say so clearly what I want. 
 
 He said, if it's not easy for you to say, Can you see how hard it will be for me to do? 
 
@@ -492,13 +506,14 @@ She said, okay, Marshall, I got your point. I see what's going on. I said, What'
 
 Why is that? What do you want him to do to meet your need for love? 
 
-I want him to guess what I want before I even know what it is. Then I want him always to do it. 
+<u>I want him to guess what I want before I even know what it is. 
+Then I want him always to do it.</u>
 
 This isn't rare. 
 
 #### many of us carry around very destructive strategies for getting our basic needs met. 
 
-strategies that are destructive, first of all, because they're not possible, or secondly because they deny the needs of the other person and require that the other person be subservient to us. It's very important to be able to say exactly what we want to meet our need for love. Very important. What do we want to meet our need for understanding and to express these requests in clear action language. 
+Strategies that are destructive, first of all, because they're not possible, or secondly because they deny the needs of the other person, and require that the other person be subservient to us. It's very important to be able to say exactly what we want to meet our need for love. Very important. What do we want, to meet our need for understanding, and to express these requests in clear action language. 
 
 Now love many people use in a different way than as a need. Some people use the word love as a feeling. **Nonviolent communication suggests that we use the word love solely as a need and not as a feeling.** If we're trying to express emotions, then use other words beside love for describing what we are feeling. 
 
@@ -536,7 +551,7 @@ Another thing that's very important and expressing our needs in a nonviolent com
 Here's two characteristics that will help us to differentiate between needs and requests or strategies for getting our needs met. 
 
 * **First of all** needs are universal. All human beings have the same needs. 
-* **The second thing** that differentiates a need from a strategy is a need contains no reference to specific people taking specific actions. Anytime we say I want you to that's not an Need, that's a request or a strategy. 
+* **The second thing** that differentiates a need from a strategy, a need contains no reference to specific people taking specific actions. Anytime we say "I want you to" that's not an need, that's a request or a strategy. 
 * **Another thing** that's very important when we do express clear request, is to **make sure that we are not addicted to getting what we want**. 
 
 #### I like the way the Buddha says this, the Buddha says, never get addicted to your requests. 
@@ -565,11 +580,13 @@ I said, I can see that I didn't make clear yesterday, the difference between a r
 
 #### If your intent is to get people to do what you want, that's a different intent than we need to have. 
 
-If we're using nonviolent communication, in nonviolent communication, it's never our objective to get what we want. It's to create the quality of connection with people that ends with everybody getting their needs met. 
+In nonviolent communication, it's never our objective to get what we want. It's to create the quality of connection with people that ends with everybody getting their needs met. 
 
-She said, Oh, so I'm supposed to do all the cleaning around the house, myself, and my needs don't come said now. I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of non violent communication.** 
+She said, Oh, so I'm supposed to do all the cleaning around the house, myself, and my needs don't count? 
 
-This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear I request as a demand and this threatens their need for autonomy and makes it harder for them to enjoy giving. We need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
+I said now. I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of non violent communication.** 
+
+This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear a request as a demand, this threatens their need for autonomy, and makes it harder for them to enjoy giving. We need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
 
 If your objective is just to get people to do what you want, don't study nonviolent communication. Go to a dog obedience school and see how they train dogs.
 
