@@ -6,6 +6,18 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5)\
 
+## Contents
+
+* [Introduction](#introduction)
+* [Love as a Need](#love-as-a-need)
+* [Saying No](#saying-no)
+* [Needs Before Strategies](#needs-before-strategies)
+* [Needs Related to Sex](#needs-related-to-sex)
+* [Sexual Stereotypes](#sexual-stereotypes)
+* [Resolving Conflicts](#resolving-conflicts)
+* [Vulnerable Feelings for Men](#vulnerable-feelings-for-men)
+* [References](#references)
+
 ## Introduction
 
 0:01  
@@ -158,7 +170,7 @@ I'd like you to tell me, if are getting together in about a half an hour. Would 
 19:35  
 We go through the process I mentioned. And then the person is better able to see that their need was received as a gift, and that we care about their need, even if, at this moment, there's a need of ours that keeps us from doing what the person wants. 
 
-### Dealing with someone who doesn't know how to say no
+### Someone who doesn't know how to say no
 
 If our partner doesn't know how to say no in this way, we need to be prepared to know how to deal with somebody who doesn't know how to say no, and who either gives in because they hear a demand or responds in other ways that are hard to live with. 
 
@@ -244,50 +256,75 @@ Well, it's not too likely, in my experience that the person and receiving that m
 
 When they hear the pain, and immediately the pain is followed by a request. Very often in my experience, that request is going to be heard as a demand. 
 
-It's very important when we are in a good deal of pain about something that we be conscious that it's by really focusing on our need, making the need clear and our feelings clear. It's that information when people have that focus, then specific strategies that are requested, have a whole different case to them. 
+It's very important when we are in a good deal of pain about something, that we be conscious, it's by really focusing on our need, making the need clear and our feelings clear. It's that information when people have that focus, then specific strategies that are requested have a whole different case to them. 
 
-Then if the person goes from the pain to the request, I have suggested an activity to many couples that have consulted with me and who are interested in how can we deepen our relationship? I've said, Let me suggest a scary exercise for you. 
+Then if the person goes from the pain to the request, I have suggested an activity to many couples that have consulted with me and who are interested in how can we deepen our relationship? 
 
-Let me suggest that in your lives that you give space, regular space to dealing with a scary question, and that scary question is, what am I afraid to tell you? And that when you take the time to do this, the person responds by saying what is a scary message to say? really works hard. expressing that in a way that makes it clear to the other person that there's no criticism or no demand intended in what they say.
+#### I've said, Let me suggest a scary exercise for you. 
 
-It's very important that the other person, really be conscious of when people are in the most pain and have the most scary messages to say. Those are the ones we need to be sure we just hear what they're feeling needing and requesting and never hear any criticism or demand. Now, not too surprisingly, one of the things that people in relationships find most difficult to talk about is their sexuality, and to make it clear whether their needs relative to sex or being met. 
+Let me suggest that in your lives that you give space, regular space, to dealing with a scary question. 
 
-One of the things that we recommend is that they get so good at expressing these scary messages that they don't wait to express them when they are sitting down. And have time to express. But they learn to express these scary messages, even while they're having sex. 
+That scary question is, what am I afraid to tell you? When you take the time to do this, the person responds by saying what is a scary message to say, and really works hard expressing that in a way that makes it clear to the other person that there's no criticism or no demand intended in what they say.
 
-In fact, we suggest that to really enjoy sex, you have to know how in the middle of sex to communicate clearly scary messages. And in our weekends that we do for couples, we often do a little exercise on what this would look like how you would express in the middle of the sexual act, when your needs are not getting, how you could do this in a way that would be a gift to the other person.
+It's very important that the other person, really be conscious of when people are in the most pain and have the most scary messages to say. Those are the ones we need to be sure we just hear what they're feeling needing and requesting and never hear any criticism or demand. 
+
+## Needs related to sex
+
+Not too surprisingly, one of the things that people in relationships find most difficult to talk about is their sexuality, and to make it clear whether their needs relative to sex are being met. 
+
+One of the things that we recommend is that they get so good at expressing these scary messages, that they don't wait to express them when they are sitting down and have time to express. They learn to express these scary messages, even while they're having sex. 
+
+In fact, we suggest that to really enjoy sex, you have to know how, in the middle of sex to communicate clearly scary messages. In our weekends that we do for couples, we often do a little exercise on what this would look like, how you would express, in the middle of the sexual act, when your needs are not getting met. How you could do this in a way that would be a gift to the other person?
 
 32:43  
-And all people find this very scary to even think of, it seems oh my goodness, how unromantic in the middle of the sexual act to express clearly what is not meeting one's needs and what would better meet them and they think boy Wouldn't that take away all the romance and joy out of sexuality that has such a conversation in the middle of the Act? 
+People find this very scary to even think of. Oh my goodness, how unromantic, in the middle of the sexual act, to express clearly what is not meeting one's needs and what would better meet them. They think, wouldn't that take away all the romance and joy out of sexuality that has such a conversation in the middle of the act? 
 
-Well, it may have that association of not being very romantic. And it may go against the cultural programming that if you're really competent man and woman, you don't have any problems and your sexual relationships, they just flow. But the reality is that to the degree to which you can be honest about such sensitive issues, even in the middle of the sexual that I predict this one of the best ways to find me enjoy sexuality more and more. 
+Well, it may have that association of not being very romantic, and it may go against the cultural programming, that if you're really competent man and woman, you don't have any problems in your sexual relationships, they just flow. The reality is, the degree to which you can be honest about such sensitive issues, even in the middle of the sexual act, I predict this is one of the best ways to enjoy sexuality more and more. 
 
-That could sound like this. One partner is in a mood for sexuality and communicate non verbally, that they might be open to this by reaching over and touching their partner in a sensitive part of the body in a gentle way trying to communicate, I'm getting turned on and would really like to get into sex with you. 
+That could sound like this. One partner is in a mood for sexuality and communicate non verbally that they might be open to this, by reaching over and touching their partner in a sensitive part of the body in a gentle way, trying to communicate, I'm getting turned on and would really like to get into sex with you. 
 
-The other party might be really wanting to finish reading what they were reading. And they were really involved in it. Now how do you when you sense your partner right now is really in a mood for sexuality? How do you respond to that?
+The other party might be really wanting to finish reading what they were reading. And they were really involved in it. Now how do you, when you sense your partner right now is really in a mood for sexuality, how do you respond to that?
 
 34:28  
-Well, some people would deny their needs and feel like oh my goodness, I have to please my partner now. Ahey might put down with they were reading and put on a suit of smile and say, Hey, what's going on? 
+Well, some people would deny their needs and feel like "oh my goodness, I have to please my partner now." They might put down what they were reading and put on a smile and say, Hey, what's going on? 
 
-If they do that, and continue with the sexual act, when they're not really into it, the other person is highly likely to be sensing that they're not into it and It's probably not going to be a very enjoyable experience for both people. Or if it is for one to the one who gave in. It's going to have some association with sexuality that both people will pay for it because if we give up our needs for our partner in any aspect of relationships, everybody pays for it eventually. 
+If they do that, and continue with the sexual act, when they're not really into it, the other person is highly likely to be sensing that they're not into it and It's probably not going to be a very enjoyable experience for both people. If it is for one to the one who gave in. It's going to have some association with sexuality that both people will pay for it because if we give up our needs for our partner, in any aspect of relationships, everybody pays for it eventually. 
 
 If the people are courageous and skilled, honesty is nonviolent communication supports the person who was reading, but again, start with empathic response to the other person either non verbally just showing by look that we see the other person is reaching out to us sexually. Or might just say words that show that looks like you'd like some real closeness and love on it and the other person say Yeah.
 
 36:02  
-And now comes how to say no. Honestly, as we've talked about, person might say, I'm torn right now, I really would like to get into it with you. And yet at the moment, I'm not really there. I'm kind of caught in this article I'm reading. How would it be for you if we get into this in about 20 minutes? So that would be how to express oneself even in the middle of intimacy, when our needs may not coincide at that moment when the needs are not the problem there. 
+And now comes how to say no, honestly, as we've talked about. A person might say, I'm torn right now, I really would like to get into it with you. And yet at the moment, I'm not really there. I'm kind of caught in this article I'm reading. How would it be for you if we get into this in about 20 minutes? That would be how to express oneself even in the middle of intimacy, when our needs may not coincide at that moment when the needs are not the problem there. 
 
-Of course, it's the strategy because in that case, the problem was that one person would like to get into the sexual act, but not at this moment. Their strategy was for in a different time. Well, of course, if we are going to be honest like that, we've got to be prepared for the other person not receiving them. Message empathically they might just be hearing that as a rejection. 
+Of course, it's the strategy because in that case, the problem was that one person would like to get into the sexual act, but not at this moment. Their strategy was for in a different time. 
 
-And their response might sound something like this. Forget it. I'm sorry, I reached out, I should have known that that reading material was more important to you than our relationship. 
+#### If we are going to be honest like that, we've got to be prepared for the other person not receiving the message empathically. 
 
-We've got to be prepared. Anytime we express ourselves vulnerably we got to be prepared to empathically deal with what comes back. An that case, and the person might say so sounds like you're feeling really hurt you we're really in the mood right now for some real closeness and intimacy and a disappointment. 
+They might just be hearing that as a rejection. 
 
-We do not take the other person statement is now we have to give in and take care of them. That wouldn't be good for either. Now in that situation, where we respond with words when we see the other person wanting to get into physical activity, someone might say is that going to destroy the beauty of our intimacy with others when we need to talk in the middle of something. Af somebody reaches out touches you in this gentle way, wouldn't it be more loving to put down whatever you are working on and get into their energy and whatever way you could? 
+And their response might sound something like this. Forget it. I'm sorry, I reached out, I should have known that reading material was more important to you than our relationship. 
 
-Well, that's one way that people define intimacy that if you really care for people in an intimate relationship, and you see what their needs are, you suppress your own needs and give to them. My experience is that if we give anytime out of an energy where we feel even slightly we have given in or given up our own self. Both people pay for it. Because that adds up. And each time we give in out of that it does something to destroy the relationship. Af the person was honest in the way that I said, and the other person gets hurt by it, and the person who chose not to get into the sex act that moment empathizes with the other person. 
+We've got to be prepared, anytime we express ourselves vulnerably, we got to be prepared to empathically deal with what comes back. In that case, the person might say, so sounds like you're feeling really hurt. You we're really in the mood right now for some real closeness and intimacy, and are disappointmented. 
 
-If that dialogue continues, so that in these very sensitive areas, were able to talk about it at the time and be honest, and be empathic to the other person's response, that intimacy is very powerful. In fact, I believe that it is so powerful that when we have that quality of intimacy that we can be honest, even at the most sensitive times. 
+#### We do not take the other person statement is now we have to give in and take care of them. 
 
-The other aspect of the intimacy in this case, the sexual act, it will get better and the Future as a result of people being able to trust that the partner is fully there, and there's no giving in or giving up. Now, of course, another thing that can get in the way of intimacy and hetero sexual relationships are the stereotypes that we carry about what a man's job is and what a woman's job is. 
+That wouldn't be good for either. 
+
+In that situation, where we respond with words when we see the other person wanting to get into physical activity, someone might say is that going to destroy the beauty of our intimacy with others when we need to talk in the middle of something. If somebody reaches out touches you in this gentle way, wouldn't it be more loving to put down whatever you are working on and get into their energy and whatever way you could? 
+
+*Well, that's one way that people define intimacy that if you really care for people in an intimate relationship, and you see what their needs are, you suppress your own needs and give to them.* 
+
+> My experience is that if we give, anytime, out of an energy where we feel even slightly we have given in or given up our own self, both people pay for it. 
+
+Because that adds up. Each time we give in, out of that, it does something to destroy the relationship. If the person was honest, in the way that I said, and the other person gets hurt by it, and the person who chose not to get into the sex act that moment empathizes with the other person. If that dialogue continues, so that in these very sensitive areas, were able to talk about it, at the time, and be honest, and be empathic to the other person's response, that intimacy is very powerful. 
+
+In fact, I believe that it is so powerful that when we have that quality of intimacy that we can be honest, even at the most sensitive times. 
+
+The other aspect of the intimacy, in this case, the sexual act, it will get better in the future as a result of people being able to trust that the partner is fully there, and there's no giving in or giving up. 
+
+
+## Sexual Stereotypes
+
+Of course, another thing that can get in the way of intimacy and hetero sexual relationships are the stereotypes that we carry about what a man's job is and what a woman's job is. 
 
 Many people carry the idea that there are certain jobs that the man should do certain jobs that the woman should do. That already creates some limits to the quality of connection to can have because then people are doing things out of should energy out of have to energy, obligation energy. 
 
@@ -296,80 +333,115 @@ Many people carry the idea that there are certain jobs that the man should do ce
 41:03  
 And it's done out of an energy that comes when we see that we are enriching life. And it's meeting our need to enrich life so that we never feel as though we are sacrificing ourself for the other people. 
 
-When I do empathy training for women, many of the women that I work with, find it very hard to hear their partner's needs without losing their own needs. It says no, other people's needs are more important to them. 
+When I do empathy training for women, many of the women that I work with find it very hard to hear their partner's needs without losing their own needs. It says no, other people's needs are more important to them. 
 
-I often recommend to such women an article written by the columnist Ellen Goodman. When [she warned women be careful about learning how to empathize better with other people's needs](http://archive.boston.com/bostonglobe/editorial_opinion/oped/articles/2009/05/22/whats_so_bad_about_empathy/). Gotta be sure as women she says that we don't empathize at the cost of losing connection. with ourselves, she warns that given our cultural training as women, it's very easy to lose ourselves and other people's needs. 
+I often recommend to such women an article written by the columnist Ellen Goodman. When [she warned women be careful about learning how to empathize better with other people's needs](http://archive.boston.com/bostonglobe/editorial_opinion/oped/articles/2009/05/22/whats_so_bad_about_empathy/). Gotta be sure as women, she says, that we don't empathize at the cost of losing connection with ourselves. She warns that given our cultural training as women, it's very easy to lose ourselves in other people's needs. 
 
-In the work that I do with women very often I see what Ellen Goodman was talking about, that when women really do empathize and see partner of theirs, needing something, they automatically lose connection with themselves and start to do for the other person. But then they know later that that wasn't in harmony with their needs. 
+In the work that I do with women, very often, I see what Ellen Goodman was talking about, that when women really do empathize and see partner of theirs needing something, they automatically lose connection with themselves and start to do for the other person. But know later that that wasn't in harmony with their needs. 
 
 They can tell from their feelings, there's a different energy, when we are giving fully out of our own need to contribute to the other person's well being. And that isn't mixed at all, with this idea that it's our obligation or duty to care for the other person. 
 
-Many of the men that I work with have a cultural status A type that is a man, they are totally responsible for their woman's smile and happiness so that if she's not smiling and happy, it means they have failed somehow as a man. Very often, this makes it hard for them to say no. Because they're afraid that if they say no, they're part who's going to be unhappy, and the very sign of the woman being unhappy, they interpret that I'm not a very competent man. 
+Many of the men that I work with have a cultural status, A type, that as a man, they are totally responsible for their woman's smile and happiness so that if she's not smiling and happy, it means they have failed somehow as a man. Very often, this makes it hard for them to say no. Because they're afraid that if they say no, they're partner's going to be unhappy, and the very sign of the woman being unhappy, they interpret that I'm not a very competent man. 
 
-Especially if the woman is not satisfied, totally sexually, and many men take it as a sign of their own inadequacy, rather than just empathically connecting with the woman to find out how the woman in needs could be better met. 
+Especially if the woman is not satisfied, totally, sexually, many men take it as a sign of their own inadequacy, rather than just empathically connecting with the woman to find out how the womans needs could be better met. 
 
-When we take responsibility for other people's feelings, rather than our own actions, that is when our Giving is mixed. And it doesn't contain the pure joy of giving that's necessary for relationships to be strengthened. 
+When we take responsibility for other people's feelings, rather than our own actions, that is when our giving is mixed. It doesn't contain the pure joy of giving that's necessary for relationships to be strengthened. 
 
-As I mentioned earlier, we need to be sure that when we have a needs that we express those needs before going to strategies. And when I talked about this earlier, I said if we go immediately the strategy without the need, it's easy for other people to hear this as a demand as though we are only concerned with what we want. It's when the need is expressed, then it can make it easier to give. 
+As I mentioned earlier, we need to be sure that when we have a needs that we express those needs before going to strategies. When I talked about this earlier, I said if we go immediately the strategy without the need, it's easy for other people to hear this as a demand as though we are only concerned with what we want. It's when the need is expressed, then it can make it easier to give. 
 
-Rhis is also very important in resolving conflicts, that we're aware that when the needs are expressed and fully understood, conflicts can be resolved much easier than when the need isn't evident. This was reflected very powerfully in a training I once did for men and women. And one of the couples that attended said they were on the point of divorce. 
+## Resolving Conflicts
 
-I said to them, if you want to work on this, I'd be glad to do it. And husband said, No, we've tried to communicating about this. There's no chance of our resolving it. We've been talking about it for two years, and we just have a conflict in our needs. 
+This is also very important in resolving conflicts, that we're aware that when the needs are expressed and fully understood, conflicts can be resolved much easier than when the need isn't evident. This was reflected very powerfully in a training I once did for men and women. And one of the couples that attended said they were on the point of divorce. 
 
-But the wife wanted very much to at least talk about it with me. Ahe husband agreed. And I said, if you each Tell me what your needs are, I'll bet you that we might see some resolution that hasn't occurred to you. And the husband said, Well, we've been over the needs many times, many times and we don't get anywhere. I said, Well, let's try again. And he said, Well, here's the problem. My need is I need needed a divorce. And she said she needs to keep the relationship together.
+I said to them, if you want to work on this, I'd be glad to do it. 
+
+The husband said, No, we've tried to communicating about this. There's no chance of our resolving it. We've been talking about it for two years, and we just have a conflict in our needs. 
+
+But the wife wanted very much to at least talk about it with me. The husband agreed. I said, if you each tell me what your needs are, I'll bet you that we might see some resolution that hasn't occurred to you. 
+
+The husband said, "we've been over the needs many times, many times and we don't get anywhere." 
+
+I said, Well, let's try again. And he said, Well, here's the problem. My need is I need needed a divorce. And she said she needs to keep the relationship together.
 
 46:06  
-I could see right away what the problem was that they had gone immediately to strategies, and neither of them really knew what needs of the other person weren't being met. 
+I could see right away what the problem was. They had gone immediately to strategies, and neither of them really knew what needs of the other person weren't being met. 
 
-I pointed this out that what I call a need doesn't involve a strategy. It's separate from the strategy and that getting a divorce or staying together is the strategy. 
+I pointed this out, that what I call a need doesn't involve a strategy. It's separate from the strategy, and that getting a divorce or staying together is the strategy. 
 
-I said, What needs are not being met by both of you in the relationship if we can get the focus on that? better than we will either find a strategy that might involve divorce, but it'll meet everybody's needs. Or it might involve staying together but again, it will meet everybody's needs. 
+I said, What needs are not being met by both of you in the relationship? If we can get the focus on that better, then we will either find a strategy that might involve divorce, but it'll meet everybody's needs. Or it might involve staying together but again, it will meet everybody's needs. 
 
-But it took us about an hour just to help them get clear what their needs were because they kept wanting to Tell me what they thought was the problem in terms of the other person. 
+It took us about an hour just to help them get clear what their needs were because they kept wanting to tell me what they thought was the problem in terms of the other person. 
 
-He said, Well, the problem with her is that she's too and she was coming back with a similar diagnosis of her husband. 
+He said, well, the problem with her is that she's too... and she was coming back with a similar diagnosis of her husband. 
 
-They hadn't been trained in nonviolent communication. Ahey weren't conscious that whenever we tell people what we think about them, that's not a very effective way of getting our needs met. With my help, they finally got their needs clear. And at that point, they came to a resolution in this case they chose to stay together. 
+They hadn't been trained in nonviolent communication. They weren't conscious that whenever we tell people what we think about them, that's not a very effective way of getting our needs met. With my help, they finally got their needs clear. At that point, they came to a resolution in this case they chose to stay together. 
 
-I have worked with other couples that when they really got their needs clear, they did see that a divorce might be the best strategy for both of them. But of course when you get to a resolution, that way, it is a far different resolution and is going to be Far more fulfilling to both people, than if we go directly to strategies and don't really make sure that the strategy is a way of getting everybody's needs met. 
+I have worked with other couples that when they really got their needs clear, they did see that a divorce might be the best strategy for both of them. But of course when you get to a resolution, that way, it is a far different resolution and is going to be far more fulfilling to both people, than if we go directly to strategies and don't really make sure that the strategy is a way of getting everybody's needs met. 
 
-In fact, one couple that I worked with, after my helping them both get clear what their needs were and hearing each other's needs. They did both see that a divorce might be the best way for both of them. But this was done with such a loving energy to come to that, that they decided to have a divorce ceremony and then divided relatives from both sides to attend the ceremony. 
+In fact, one couple that I worked with, after my helping them both get clear what their needs were and hearing each other's needs. They did both see that a divorce might be the best way for both of them. This was done with such a loving energy to come to that, that they decided to have a divorce ceremony and then divided relatives from both sides to attend the ceremony. 
 
-Now a divorce arrived that in that way, is going to be quite different for the children than a divorce arrived at through the usual adversarial procedures. 
+Now a divorce arrived at, in that way, is going to be quite different for the children than a divorce arrived at through the usual adversarial procedures. 
 
-In one city In the United States, in the family court, we have trained social workers to be able to use nonviolent communication in helping couples going through a divorce, to come to some resolution in the divorce settlement that everybody's needs. In this situation, couples going through a divorce, then have an option and they can go through the usual adversarial procedures, or they can request to go through a three hour mediation session with social workers who were trained in using nonviolent communication. 
+In one city, in the United States, in the family court, **we have trained social workers to be able to use nonviolent communication in helping couples going through a divorce**, to come to some resolution in the divorce settlement that everybody's needs. 
 
-I had lunch one day with the judges in this family court program. And they were very pleased they told me with what it did for couples who chose to go through the mediation session so that everybody's needs Were clarified in the process and an attempt found to meet everybody's needs. 
+In this situation, couples going through a divorce, then have an option. They can go through the usual adversarial procedures, or they can request to go through a three hour mediation session with social workers who were trained in using nonviolent communication. 
 
-They could see how different it would be for the children to then be with either parent that they were going to be with, where the resolution was one that didn't end on animosity and competition, but on a loving way, finding the best way possible to go in separate ways, but in a way that meets everybody's needs.
+I had lunch one day with the judges in this family court program. They were very pleased they told me with what it did for couples who chose to go through the mediation session, so that everybody's needs were clarified, in the process, and an attempt found to meet everybody's needs. 
+
+They could see how different it would be for the children to be with either parent that they were going to be with, where the resolution was one that didn't end on animosity and competition, but on a loving way, finding the best way possible to go in separate ways, but in a way that meets everybody's needs.
+
+## Vulnerable Feelings for Men
 
 50:33  
-The john wayne consciousness that I developed growing up as a male has made it a real challenge to express my vulnerable feelings when I've been hurt or scared. It's as though men don't have those kinds of feelings. 
 
-I can recall that one time I was in school as a child and I was hiding Inside the school because there were some several people waiting to beat me because they didn't like my last name. They didn't like Jews. And I was scared to death as a nine year old boy and I would hide from them very often to avoid getting beaten up. 
+**The john wayne consciousness that I developed growing up as a male has made it a real challenge to express my vulnerable feelings when I've been hurt or scared.** 
 
-One day when a teacher saw me hiding in the classroom, it was an hour after school was over. And she was surprised to see it. The child still in school, especially hiding in the school and she says, What are you doing here? I said, I pointed out the window. Those boys are waiting out there to beat me up. She said but school is over. You have to leave the school now. I said but I'm scared. And she said boys don't get scared. We are that got a lot of evidence from my cultural education. That boy Don't get scared boys don't get hurt. They don't get sad. If you're a real man, you don't have any of these feelings. And unfortunately for me, I took her words in and believed it and found it hard to admit when I was scared, hard to admit these other feelings as well. 
+It's as though men don't have those kinds of feelings. 
 
-25 years later, I was doing some work in Toronto, Canada with about 80 women. These women were sole support parents, they had no partners, and they were poor. And I was doing the workshop with them. And in the process, one of them said something about her gratitude that I would come up there and offer this training and especially do it knowing that they had very little money to give me and I was so touched by The gratitude that I received that in front of these 80 women, I started to cry. 
+I can recall that one time I was in school as a child and I was hiding inside the school because there were some several people waiting to beat me because they didn't like my last name. They didn't like Jews. And I was scared to death as a nine year old boy and I would hide from them very often to avoid getting beaten up. 
 
-I couldn't look up I felt such shame. How could I reveal such vulnerability in front of these women. And when I finally got my courage up to look up, instead of seeing the contempt that I expected to see in their eyes, it was just the opposite. I had never seen such respect or caring in my life. Now, this was a shock that I could reveal such feelings and get such a response. And I started to cry all the more. And now I really felt ashamed and it was hard to look up and I was telling myself, my goodness, these poor women are giving me $5 apiece for this day and I'm crying away their time. And when I did look up, I didn't see one woman that looked as though she was angry that I was crying away their time. All I saw was caring. compassion. 
+One day when a teacher saw me hiding in the classroom, it was an hour after school was over. And she was surprised to see it. The child still in school, especially hiding in the school and she says, what are you doing here? 
 
-I've met a lot of men who have shared the same cultural upbringing that I went through. They find it so hard to reveal these vulnerable feelings. And it's catastrophic what effect this has on intimate relationships because it's our ability to courageously share the depths of our vulnerability that adds to the depth of intimate relationships. 
+I said, I pointed out the window. Those boys are waiting out there to beat me up. 
 
-I was doing a workshop in the United States, and in the group was a man and woman who had been married for about 35 years, they were about to get a divorce. But one of their children strongly recommended that before they get the divorce. Come to the training. And in the training, the man sat there and seldom said a word. He just seemed to have all of whatever was alive in him locked inside. 
+She said but school is over. You have to leave the school now. 
 
-And I did a role play with another woman who told me about a husband that wasn't expressing his feelings and she said, Marshall, can you kind of play my husband's role, and guess what you think might be going on in him. That makes it hard for him to express his feelings. An playing the husband's role, I said, life it's hard for me to express my feelings because all this cultural training telling me I shouldn't have these vulnerable feelings. It's like I put them in a part of myself and lock that up and locking that up. I feel safe, but I feel very vulnerable if I let any of it out. Is that clear to you?
+I said but I'm scared. 
+
+She said boys don't get scared. 
+
+That got a lot of evidence from my cultural education. That boys don't get scared. Boys don't get hurt. They don't get sad. If you're a real man, you don't have any of these feelings. Unfortunately for me, I took her words in and believed it and found it hard to admit when I was scared, hard to admit these other feelings as well. 
+
+25 years later, I was doing some work in Toronto, Canada. With about 80 women. These women were sole support parents, they had no partners, and they were poor. And I was doing the workshop with them. 
+
+In the process, one of them said something about her gratitude that I would come up there and offer this training and especially do it knowing that they had very little money to give me. I was so touched by the gratitude, that I received, that in front of these 80 women, I started to cry. 
+
+I couldn't look up I felt such shame. How could I reveal such vulnerability in front of these women. When I finally got my courage up to look up, instead of seeing the contempt that I expected to see in their eyes, it was just the opposite. I had never seen such respect or caring in my life. Now, this was a shock that I could reveal such feelings and get such a response. I started to cry all the more. And now I really felt ashamed and it was hard to look up and I was telling myself, my goodness, these poor women are giving me $5 apiece for this day and I'm crying away their time. 
+
+*When I did look up, I didn't see one woman that looked as though she was angry that I was crying away their time. All I saw was caring. compassion.* 
+
+#### I've met a lot of men who have shared the same cultural upbringing that I went through. 
+
+They find it so hard to reveal these vulnerable feelings. And it's catastrophic what effect this has on intimate relationships because it's our ability to courageously share the depths of our vulnerability that adds to the depth of intimate relationships. 
+
+I was doing a workshop in the United States, and in the group was a man and woman who had been married for about 35 years. They were about to get a divorce, but one of their children strongly recommended that before they get the divorce, come to the training. In the training, the man sat there and seldom said a word. He just seemed to have all of whatever was alive in him locked inside. 
+
+I did a role play with another woman who told me about a husband that wasn't expressing his feelings and she said, Marshall, can you kind of play my husband's role, and guess what you think might be going on in him, that makes it hard for him to express his feelings? 
+
+In playing the husband's role, I said, wife it's hard for me to express my feelings because all this cultural training telling me I shouldn't have these vulnerable feelings. It's like I put them in a part of myself and lock that up. In locking that up, I feel safe, but I feel very vulnerable if I let any of it out. Is that clear to you?
 
 56:04  
 This man who saw me playing that role.
 
-56:09  
 He said, That's me.
 
-56:12  
-And his wife looked at him and said, what he said, That's me. Just what Marshall said is what it's like for me. I have all those feelings in there. But it's like they're locked inside. And I can't get at him. And his wife was so happy just to hear that much. Coming from him is something she had wanted in their whole marriage. Just so that he could recognize those feelings and say that they were in there was such a relief to her. And of course, we then went further to help him to see what it would be like to actually express them and to see that when we express those feelings, those needs which are the most scary For us to express the not doing it is very costly in the relationship. And when we do it vulnerably without criticism without demand, and the other person empathically receives it, the relationship is going to be powerfully nurtured.
+And his wife looked at him and he said, what he said, That's me. Just what Marshall said is what it's like for me. I have all those feelings in there. But it's like they're locked inside, and I can't get at him. 
 
-57:31  
-This concludes session five of the nonviolent communication training course with Marshall Rosenberg. Our program continues with session six
+His wife was so happy just to hear that much. Coming from him is something she had wanted in their whole marriage. Just so that he could recognize those feelings and say that they were in there was such a relief to her. 
 
-Transcribed by https://otter.ai
+Of course, we then went further to help him to see what it would be like to actually express them, and to see that when we express those feelings, those needs which are the most scary for us to express, the not doing it is very costly in the relationship. When we do it vulnerably, without criticism, without demand, and the other person empathically receives it, relationship is going to be powerfully nurtured.
+
+
+## References
+
+* [What's so bad about empathy?](http://archive.boston.com/bostonglobe/editorial_opinion/oped/articles/2009/05/22/whats_so_bad_about_empathy/)
