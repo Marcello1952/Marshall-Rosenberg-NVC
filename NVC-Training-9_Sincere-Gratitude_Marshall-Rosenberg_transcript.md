@@ -7,7 +7,7 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9)\
 
 
-## Transcript
+## Introduction
 
 0:00  
 In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what nonviolent communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
