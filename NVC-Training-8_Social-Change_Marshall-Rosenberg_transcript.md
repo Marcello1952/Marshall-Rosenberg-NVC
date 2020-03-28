@@ -8,7 +8,7 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8)\
 
-## Transcript
+## Introduction
 
 In this session, I'll be focusing on how nonviolent communication can support our social change efforts. In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
 
