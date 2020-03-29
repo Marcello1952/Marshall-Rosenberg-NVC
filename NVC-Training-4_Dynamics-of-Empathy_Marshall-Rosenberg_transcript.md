@@ -10,14 +10,13 @@
 * [Introduction](#introduction)
 * [Components of Empathy](#components-of-empathy)
 * [How to *Demonstrate* understanding](#how-to-demonstrate-understanding)
-* [Challenging Responses to Empathize with](#challenging-responses-to-empathize-with)
+* [Challenging Responses to Empathize With](#challenging-responses-to-empathize-with)
 * [Hearing 'No' Empathically](#hearing-no-empathicaly)
 * [Connecting with what's alive in someone](#connecting-with-whats-alive-in-someone)
 * [Resources](#resources)
 
 ## Introduction
 
-0:00  
 In this session, I'll be discussing the **dynamics of empathy as practiced within nonviolent communication**. 
 
 As an image to help you understand what I mean by empathy, I'd like to refer to an image that was quoted in a book [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now). This person who wrote the book had heard me giving an explanation of empathy in a workshop and he incorporated it in his book. 
