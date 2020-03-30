@@ -200,10 +200,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
 | **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
 
-> Satisfiers also have different characteristics: they can be violators or destroyers, pseudosatisfiers, inhibiting satisfiers, singular satisfiers, or synergic satisfiers. Max-Neef shows that certain satisfiers, promoted as satisfying a particular need, in fact inhibit or destroy the possibility of satisfying other needs: eg, the arms race, while ostensibly satisfying the need for protection, in fact then destroys subsistence, participation, affection and freedom; formal democracy, which is supposed to meet the need for participation often disempowers and alienates; commercial television, while used to satisfy the need for recreation, interferes with understanding, creativity and identity - the examples are everywhere.
-> 
-> Synergic satisfiers, on the other hand, not only satisfy one particular need, but also lead to satisfaction in other areas: some examples are breast-feeding; self-managed production; popular education; democratic community organisations; preventative medicine; meditation; educational games.
-
 
 ## Jakal and Giraffe Language
 
@@ -274,6 +270,16 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
 * [Ep. 86 - Oren Jay Sofer - Metta Hour with Sharon Salzberg](https://beherenownetwork.com/sharon-salzberg-metta-hour-ep-86-oren-jay-sofer/)
   > Oren Jay Sofer is a member of the Spirit Rock Teacher’s Council, a Certified Trainer of Nonviolent Communication, and a Somatic Experiencing Practitioner for healing trauma. His first book, “Say What You Mean” comes out in December 2018. In this conversation, Sharon and Oren discuss how Oren came to the path of meditation practice, and his time spent in the East. They also discuss the many nuances of effective communication both related to mindfulness practice, somatic healing, and the application of non-violent communication. The conversation closes with Oren leading a short guided meditation. For more information, visit orenjaysofer.com.
+
+#### Richard Layard 
+
+* [A Generous-Hearted Life](https://www.imf.org/external/pubs/ft/fandd/2015/12/people.htm) - Alan Wheatley profiles Richard Layard, who believes the basic purpose of economics is the maximization of happiness and well-being
+  > as Layard sees it, along the way economics partly lost sight of this original purpose. The maximization of utility, or happiness, became conflated with the maximization of consumption and then with income and GDP. Layard’s contribution, along with that of other economists, including Andrew Oswald of Warwick University, is to have helped reassert the importance of factors other than income in determining happiness.
+  > 
+  > “To understand how the economy actually affects our well-being, we have to use psychology as well as economics,” was how Layard put it in one of a trio of lectures he gave on the topic at the LSE in 2003. GDP, he added, was a “hopeless measure of welfare.” Those lectures were the germ of a best-selling book published in 2005, Happiness: Lessons from a New Science, in which he argued that seven major factors affect how happy we are, defined as enjoying life and feeling wonderful: our family relationships, financial situation, work, community and friends, health, personal freedom, and personal values.
+* ['happiness tsar', Richard Layard, thinks he knows why we're all so miserable](https://www.theguardian.com/lifeandstyle/2008/jun/24/healthandwellbeing.schools)
+  > Layard is quietly effecting a revolution in this miserable, materialistic, overworked country. A Labour peer since 2000, he has been able to influence first Blair's administration and then Brown's into making his happiness agenda government policy. His calls for cognitive behavioural therapy (CBT), for school lessons in emotional intelligence, and other allegedly happiness-causing reforms have been greeted warmly by education secretary Ed Balls, health secretary Alan Johnson, the health guideline-setting National Institute for Clinical Excellence and by local authorities up and down the country. Layard is founder director of the Centre for Economic Performance at the London School of Economics, and runs its Well-Being programme. He speaks cheerfully of how the word "well-being" now figures in job titles at government departments, how the new government policy includes commitments to well-being, how the Office for National Statistics is developing the measurement of well-being, how Ed Balls's Social and Emotional Aspects of Learning programme is devoted to making secondary school children focused on well-being. For Layard, you see, well-being is just another way of saying happiness.
+* [Action for Happiness](https://www.actionforhappiness.org/)
 
 #### Non-Defensive Communication
 
