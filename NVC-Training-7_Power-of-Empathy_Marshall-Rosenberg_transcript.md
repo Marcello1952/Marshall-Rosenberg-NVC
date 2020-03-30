@@ -1,6 +1,8 @@
 # Power of Empathy - Session #7 - Nonviolent Communication Training - Marshall Rosenberg
 
-> I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
+> I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. 
+
+> In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
 
 
 [NVC Training Course Session 7 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7)
@@ -11,25 +13,38 @@
 ## Introduction
 
 0:00  
-In this session, I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. In this session, I will show just how powerful that process can be in *healing past wounds*, *mediating conflicts between people*, and *reconciling groups that are at war with each other to see how they can live in peace and harmony*. 
+In this session, I'll be showing the power that empathy has in three functions, **healing**, **mediation**, and **reconciliation**. 
+
+In the previous session, we looked at the dynamics of empathy. We saw how it requires our full presence to another person, and full presence on what's alive in them, what they're feeling and needing. 
+
+In this session, I will show just how powerful that process can be in: 
+* **healing past wounds**
+* **mediating conflicts between people** 
+* **_reconciling groups that are at war with each other to see how they can live in peace and harmony_**. 
 
 ## The power of empathy 
 
 #### First, let's look at how empathy supports healing. 
 
-The word healing has some aspects that I get concerned about, because when it's applied to people's emotional pain, we use this term mental illness, and then we think of trying to heal the illness. 
+The word healing has some aspects that I get concerned about. When it's applied to people's emotional pain, we use this term mental illness, and then we think of trying to heal the illness. I have some deep concerns about the concept of mental illness. 
 
-I have some deep concerns about the concept of mental illness. My concerns about this concept began when I receive some precious gifts from a professor I had at university, just before I was ready to graduate with my doctor's degree in clinical psychology. 
+My concerns about this concept began when I receive some precious gifts from a professor I had at university, just before I was ready to graduate with my doctor's degree in clinical psychology. This Professor showed me the scientific limitations of the concept of mental illness, and the political dangers of this concept. 
 
-This Professor showed me the scientific limitations of the concept of mental illness, and the political dangers of this concept. He helped me to see that there was almost no reliability about how professionals use these terms because it was an real scientific basis for all of the different problems that were defined in the basic manual used by psychiatrists and psychologists to make diagnoses. 
+He helped me to see that there was almost no reliability about how professionals use these terms because it was an real scientific basis for all of the different problems that were defined in the basic manual used by psychiatrists and psychologists to make diagnoses. 
 
-So what one professional might call a bipolar disease, another might call something else. And research shows that there's very little reliability of a scientific nature about how all of these terms in the manual are used. But what's more important to me is the political dangers he pointed out to this. He pointed out to me that we live under political and economic structures that require a certain education that contributes to great pain on the part of large numbers of people. 
+So what one professional might call a bipolar disease, another might call something else. And research shows that there's very little reliability of a scientific nature about how all of these terms in the manual are used. But what's more important to me is the political dangers to this. He pointed out to me that we live under political and economic structures that require a certain education, that contributes to great pain on the part of large numbers of people. 
 
-He helped me to see how the concept of mental illness takes the focus away from what might be causing the problems, the structures and the education they require. By making it look like it's something that's wrong within individuals, we take away from what's really creating the problem. And we do it in a way that isn't really helpful and helping the people because we talk as though they have an illness. When it isn't an illness they have, it's an educational problem that they have. They've been educated in a way that might make them depressed, or educated in a way that might make them insensitive to other people's needs and preoccupied only getting their own needs met regardless of how it affects other people. 
+He helped me to see how **the concept of mental illness takes the focus away from what might be causing the problems, the structures and the education they require**. By making it look like it's something that's wrong within individuals, we take away from what's really creating the problem. We do it in a way that isn't really helping the people because we talk as though they have an illness. 
+
+#### it isn't an illness they have, it's an educational problem that they have. 
+
+They've been educated in a way that might make them depressed, or educated in a way that might make them insensitive to other people's needs and preoccupied only getting their own needs met regardless of how it affects other people. 
 
 I was also helped to get this important concept clarified by the book [The Myth of mental illness](https://en.wikipedia.org/wiki/The_Myth_of_Mental_Illness) by the psychiatrist Thomas Szasz. In that book, he supported what my professor helped me see, the scientific limitations of the concept of mental illness, and the political dangers. 
 
-I value another book that helps show the other side that I'll be talking about more in this session. It's a book called [Legacy of the Heart: The Spiritual Advantage of a Painful Childhood](https://www.goodreads.com/book/show/303061.Legacy_of_the_Heart), written by Wayne Muller. In this book, he looks at the human suffering that many people go through that is often referred to as a mental illness, not as an illness, but as an inevitable consequence of things that may have happened to this person in their life that caused great pain that they didn't know how to handle. And he shows that if we help these people to transcend that pain, to learn how to turn it into something constructive, the very pain can be something the person benefits by.
+I value another book that helps show the other side that I'll be talking about more in this session. It's a book called [Legacy of the Heart: The Spiritual Advantage of a Painful Childhood](https://www.goodreads.com/book/show/303061.Legacy_of_the_Heart), written by Wayne Muller. 
+
+In this book, he looks at the human suffering that many people go through that is often referred to as a mental illness, not as an illness, but as an inevitable consequence of things that may have happened to this person in their life that caused great pain that they didn't know how to handle. He shows that **if we help these people to transcend that pain, to learn how to turn it into something constructive, the very pain can be something the person benefits by**.
 
 5:04  
 This is the kind of way that I like to look at the pain that many people have brought to me over the years. If we look at this pain in a certain way, **we can come out of it stronger people than we would have been if we didn't have this experience.**
@@ -40,11 +55,13 @@ In the healing work that I do using nonviolent communication, empathy plays a ke
 
 For example, Carl Rogers did some research on what contributes to healing. And in this research, he had patients in a mental hospital assigned to work with psycho-therapists from different persuasions. These therapist tape recorded their sessions. And various measures were made of what went on between the patients and the therapist. 
 
-Doctors of the patients who were put into this research evaluated what healing took place to the patients as a result of the work that they did with the various therapists. This research showed that there was no difference between the various professionals in terms of which kind of psychotherapy was more effective than the other. All had about the same result in terms of healing. Rogers took a group of lay people who had no psychotherapeutic experience, and made them therapist in this research, and they were just as effective as any of the professionals. 
+Doctors of the patients who were put into this research evaluated what healing took place to the patients as a result of the work that they did with the various therapists. **This research showed that there was no difference between the various professionals in terms of which kind of psychotherapy was more effective than the other.** All had about the same result in terms of healing. Rogers took a group of lay people who had no psychotherapeutic experience, and made them therapist in this research, and they were just as effective as any of the professionals. 
 
 I'm aware of a lot of other research that's been done since then that shows that you can't tell whether healing is going to take place by the kind of training that the person they're with has been through. It has much more to do with empathy. 
 
-**It was those therapists who demonstrated empathy the most in the sessions, the people that they worked with, showed the most healing**. Just to receive empathy for what is alive in us the pain that's alive in us that may have been stimulated years ago. But that pain is still with us right now, when we get an empathic connection with that pain, that's a very powerful contribution to healing. We all have this ability to learn how to listen empathically to one another, and to contribute to one another, transforming this pain. 
+**It was those therapists who demonstrated empathy the most in the sessions, the people that they worked with, showed the most healing**. Just to receive empathy for what is alive in us the pain that's alive in us that may have been stimulated years ago. But that pain is still with us right now, when we get an empathic connection with that pain, that's a very powerful contribution to healing. 
+
+#### We all have this ability to learn how to listen empathically to one another, and to contribute to one another, transforming this pain. 
 
 A second part of empathic contribution to healing, is when somebody who has been wounded and in pain as a result of things that have happened to them, if they can empathize with what was alive in the people who stimulated that, healing takes place with that.
 
@@ -58,7 +75,7 @@ In other words,
 
 I'll be playing the role of a father who has stimulated a lot of pain in his 30 year old daughter. 
 
-*Healing can take place if I empathically connect with people myself*, not playing the role of the person who stimulated the pain.  Over the years, I have found that *it is far more powerful if I played the role of the other person offering this empathic connection*, and actually *my first choice is to have the person stimulating the pain present*, and to work with both the person who has suffered and the person who has stimulated the suffering. Then I help that person who has stimulated the suffering to empathically connect with the other person. 
+*Healing can take place if I empathically connect with people myself*, playing the role of the person who stimulated the pain.  Over the years, I have found that *it is far more powerful if I played the role of the other person offering this empathic connection*, and actually *my first choice is to have the person stimulating the pain present*, and to work with both the person who has suffered and the person who has stimulated the suffering. Then I help that person who has stimulated the suffering to empathically connect with the other person. 
 
 #### In this role play, I'll be playing the role of a father who has stimulated great pain for his daughter. 
 
@@ -93,51 +110,51 @@ So what I'm hearing is that still exist in you a great deal of hurt, that your n
 So you're still suffering the pain of those times when you really need understanding and got quite the opposite, instead of being understood for what was bothering you when you were crying, you heard a criticism, you felt you received punishment, and you'd like me to be aware of how that has affected you, that it's leaving you now feeling scared to reveal yourself? Am I hearing you correctly?
 
 16:41  
-*Yes, you are. Yes, I can for the first time here that you are hearing you are listening.*
+*Yes, you are. Yes, I can for the first time hear that you are listening.*
 
 16:51  
-I'd like them to tell your daughter what goes on in me when I hear this. If you're willing for me to talk now, can you hear me now?
+I'd like then, to tell you daughter what goes on in me when I hear this. If you're willing for me to talk now, can you hear me now?
 
 17:01  
 Yes, I can I hope I can.
 
 17:05  
-First thing I want you to hear is how sad I am this deeply, deeply sad that I would have liked to have met your need for acceptance and and I would have liked for your you to feel safe around me. So I'm really sad that I didn't know how to express myself differently when you were young. But I was so caught up in pain myself in my relationship with your mother and with other people. so caught up in that pain. And I did not talk about it with people. And I'm sad that it would come out toward you and toward the other children.
+First thing I want you to hear is how sad I am this deeply, deeply sad. I would have liked to have met your need for acceptance and I would have liked for your you to feel safe around me. So I'm really sad that I didn't know how to express myself differently when you were young. I was so caught up in pain myself in my relationship with your mother and with other people. So caught up in that pain. And I did not talk about it with people. And I'm sad that it would come out toward you and toward the other children.
 
 17:50  
-Could you tell me what you heard me say so I can see if I made myself clear.
+Could you tell me what you heard me say so I can see if I made myself clear?
 
 17:55  
-What I heard you say is that you are sad for Not being able to to be there for me that you're caught up in your own pain with whatever was going on with you and mom and when we wanted you to be just there and loving us that you could not do that. So your sadness right now is very I'm hearing that I never heard that before. I was just scared of you.
+What I heard you say is that you are sad for not being able to to be there for me that you're caught up in your own pain with whatever was going on with you and mom and when we wanted you to be just there and loving us that you could not do that. So your sadness right now is very I'm hearing that I never heard that before. I was just scared of you.
 
 18:31  
 And I very much I'm grateful for you hearing me this way. And I'd like to know how you feel when I tell you.
 
 18:40  
-I'm relieved. I'm relieved because I thought I had done something wrong.
-
-18:48  
+I'm relieved. I'm relieved because I thought I had done something wrong. 
 And I'm sad for you.
 
 18:49  
-I'm so sad that I didn't know a way of expressing my pain that would wouldn't have left you feeling there was something wrong with you. I wish I could have just said it that time I'm in so much pain daughter, it's hard for me to hear you cry. I wish I could have done anything except communicate in a way that would contribute to your feeling that you weren't valued. So I'm grateful to you for having this dialogue with me now. 
+I'm so sad that I didn't know a way of expressing my pain that would wouldn't have left you feeling there was something wrong with you. I wish I could have just said, at that time, I'm in so much pain daughter, it's hard for me to hear you cry. I wish I could have done anything except communicate in a way that would contribute to your feeling that you weren't valued. So I'm grateful to you for having this dialogue with me now. 
 
-#### So that's how healing session often go when we apply nonviolent communication to the healing. 
+#### So that's how healing sessions often go when we apply nonviolent communication to the healing. 
 
 Notice that in that dialogue, I began in the role of Father empathically, connecting to what was alive in her now. Notice how little time we spent talking about the past it was mostly focusing on what is alive now. And when my daughter received the empathy she said she needed now. Then she could empathize with what was alive in me when I was doing the things and saying the things that stimulated to her pain. 
 
-Over the years, many people have come to me wanting to have some healing for a lot of pain that's going on within them. And this healing can take place if I just play my own role not I do not have to necessarily play the role of the person who contributed to the pain. 
+Over the years, many people have come to me wanting to have some healing for a lot of pain that's going on within them. And this healing can take place if I just play my own role, I do not have to necessarily play the role of the person who contributed to the pain. 
 
-Very often I will start by saying to people, I think we can heal from this situation, if you can tell me what's alive in you now, as a result of what happened in the past. Let's just talk about what's alive now. Maybe it was stimulated by something that somebody did in the past. But just tell me now, what is alive in you now? If the person is very depressed. They usually don't know how to tell me really what's alive in them now as we define that term. In nonviolent communication, that what is alive in you now is what are you feeling? And what are you needing? 
+Very often I will start by saying to people, I think we can heal from this situation, if you can tell me what's alive in you now, as a result of what happened in the past. Let's just talk about what's alive now. Maybe it was stimulated by something that somebody did in the past. But just tell me now, what is alive in you now? 
 
-Most people who I find a very depressed, do not know how to express and stay connected to their feelings and needs. They feel their depression because of how they think about themselves. And they think about themselves this way, not because they have an illness called depression. But because they have been educated to think about themselves in a way that creates depression.
+If the person is very depressed. They usually don't know how to tell me really what's alive in them now, as we define that term. In nonviolent communication, that what is alive in you now is what are you feeling? And what are you needing? 
+
+Most people who I find are very depressed, do not know how to express and stay connected to their feelings and needs. **They feel their depression because of how they think about themselves. And they think about themselves this way, not because they have an illness called depression. But because they have been educated to think about themselves in a way that creates depression**.
 
 21:41  
-For example, very often when somebody who's very depressed comes to me and wants to get out of this depression. I asked him this question to get started, what needs of yours are not being met right now? in your life. When the person is very depressed, they very seldom Tell me what their needs are that I'm getting that they usually give me a diagnosis of themselves. 
+For example, very often when somebody who's very depressed comes to me and wants to get out of this depression. I asked him this question to get started, what needs of yours are not being met right now? in your life. When the person is very depressed, they very seldom tell me what their needs are that I'm getting that they usually give me a diagnosis of themselves. 
 
 They'll say something to me like, I'm a failure. I look at my brothers and sisters and I see all they've accomplished in life. And I compare myself to them and I see what a failure I am. or other people tell me, I'm a terrible mother. or others tell me, I'm too sensitive. All I know is that I get hurt. No matter what somebody says, What's wrong with me? I'm so sensitive. 
 
-So notice, I've asked these people what their needs are, but they don't tell me their needs. But they're very literate, telling me what they think about themselves, what they think about themselves in a way that implies there is something wrong with them. And that's the kind of thinking I believe contributes to depression. 
+So notice, I've asked these people what their needs are, but they don't tell me their needs. They're very literate, telling me what they think about themselves, what they think about themselves in a way that implies there is something wrong with them. And that's the kind of thinking I believe contributes to depression. 
 
 What I do with such people, I help them to identify these judgments and help them to see that all of these judgments that we make of ourselves that stimulate depression are simply expressions of unmet needs. We have needs in our life, that we're not meeting to our satisfaction. 
 
