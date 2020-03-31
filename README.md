@@ -254,11 +254,19 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [The scientifically proven, step-by-step guide to having a breakthrough conversation across party lines](https://qz.com/838321/nonviolent-communication-the-scientifically-proven-step-by-step-guide-to-having-a-breakthrough-conversation-across-party-lines/)
 * [Collaborative Communication & Email: Best Practices (or How Not to Drive Your Colleagues Entirely Crazy)](https://baynvc.org/collaborative-communication-email-best-practices-or-how-not-to-drive-your-colleagues-entirely-crazy/)
 
-### Other
+## Other
 
 * [Emotional Competency - Study Guide](http://www.emotionalcompetency.com/searchsite.htm)
-  > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
+  > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. 
+  >
+  > You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
 * [Atlass of Emotions](http://atlasofemotions.org/)
+* [Miki Kasthan - The Inseparability of Psychological and Social Transformation](https://podcasts.apple.com/us/podcast/emerge-making-sense-of-whats-next/id1057220344?i=1000431035111)
+  > We talk about how economic and cultural systems inform our psychology, why none of us can know what ‘human nature’ is, the necessity of communities of practice for those who seek to transform their consciousness, how to practice full spectrum nonviolence, the unsettling power of moral authority, and the central significance of connecting with and expressing our biological needs.
+* [Ep. 37 Miki Kashtan on the three shifts needed for self-managing organisations to thrive](https://podcasts.apple.com/dk/podcast/ep-37-miki-kashtan-on-three-shifts-needed-for-self/id1234632893?i=1000450072937)
+  > Miki Kashtan is an author, international teacher and practitioner of Nonviolent Communication. In this conversation we talk about the three different places shifts need to occur in order for a self-managing human system to thrive. She also shares the five core systems we need to redesign in our organisations as well as the mindset shifts and dialogue skills we need to develop in order to collaborate on a deeper, more purposeful level.
+
+
 
 #### Mindful Approach to Nonviolent Communication
 
@@ -295,9 +303,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > 
   > CNVC is a steward of the integrity of the NVC process and a nexus point of NVC-related information and resources, including training, conflict resolution, projects and organizational consulting services. CNVC’s mission is to contribute to more sustainable, compassionate, and “life-serving” human relations in the realms of personal change, interpersonal relationship and in social systems and structures, such as business/economics, education, justice, healthcare, and peace-keeping. NVC work is being done in over 65 countries and growing, touching the lives of hundreds of thousands of people around the world
 
-#### Credits
-
-[https://www.cnvc.org/legal](https://www.cnvc.org/legal)
+#### [cnvc.org/legal](https://www.cnvc.org/legal)
 
 > All of the material on our website is available for public use. It can be downloaded reprinted and distributed freely. We request that you include at the bottom:
 > 
