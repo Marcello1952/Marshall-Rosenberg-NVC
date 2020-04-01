@@ -14,6 +14,7 @@
 * [Losing connection with our humaneness in positions of authority](#losing-connection-with-our-humaneness-in-positions-of-authority)
 * [Not giving our power away to authorities](#not-giving-our-power-away-to-authorities)
 * [The Importance of Wondering](#importance-of-wondering)
+* [Resources](#resources)
 
 ## Introduction
 
@@ -168,6 +169,7 @@ There's other research that shows that [college students brought into a situatio
 And that can be scary because very Often the institutions that we might be within might not be set up to maintain the kind of values that we hold within ourselves. 
 
 As Walter wink, the Christian theologian says in some of his writings, it's very important to be conscious that [institutions have their own spirituality](https://books.google.com/books/about/Naming_the_Powers.html?id=ziOGWGSx_qEC). Tragically, *very often the spirituality of the institutions that are guiding us*, the corporate institutions, the government institutions, the school institutions, *are not institutions having values that I believe we want to support*. 
+
 
 ## Not giving our power away to authorities
 
@@ -447,3 +449,11 @@ I hope that we are wondering whether we have fully developed our ability **to se
 I'd like us to wonder whether we have fully developed our ability to see that person's humaneness, and that we can communicate with them and show them other ways of getting all needs met, beside the ways that we have been trained to use power within domination systems. 
 
 #### I'd like us all to learn how to use power with people, not power over people.
+
+## Resources
+
+* [Stanford Prison Experiment](https://www.prisonexp.org/)
+* [Stanley Milgram](https://www.simplypsychology.org/milgram.html)
+* [Naming the Powers: The Language of Power in the New Testament](https://books.google.com/books/about/Naming_the_Powers.html?id=ziOGWGSx_qEC), Walter Wink
+* [Crow with a crippled wing](https://www.youtube.com/watch?feature=player_embedded&amp=&v=tsu0hkHQlkA)
+* [I wonder](https://www.youtube.com/watch?v=O7CZ_ElfLk0)
