@@ -16,7 +16,7 @@
 * [Sexual Stereotypes](#sexual-stereotypes)
 * [Resolving Conflicts](#resolving-conflicts)
 * [Vulnerable Feelings for Men](#vulnerable-feelings-for-men)
-* [References](#references)
+* [Resources](#resources)
 
 ## Introduction
 
