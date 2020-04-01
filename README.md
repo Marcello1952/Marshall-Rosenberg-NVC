@@ -265,8 +265,8 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > We talk about how economic and cultural systems inform our psychology, why none of us can know what ‘human nature’ is, the necessity of communities of practice for those who seek to transform their consciousness, how to practice full spectrum nonviolence, the unsettling power of moral authority, and the central significance of connecting with and expressing our biological needs.
 * [Ep. 37 Miki Kashtan on the three shifts needed for self-managing organisations to thrive](https://podcasts.apple.com/dk/podcast/ep-37-miki-kashtan-on-three-shifts-needed-for-self/id1234632893?i=1000450072937)
   > Miki Kashtan is an author, international teacher and practitioner of Nonviolent Communication. In this conversation we talk about the three different places shifts need to occur in order for a self-managing human system to thrive. She also shares the five core systems we need to redesign in our organisations as well as the mindset shifts and dialogue skills we need to develop in order to collaborate on a deeper, more purposeful level.
-
-
+* [The Fearless Heart: Inspiration and tools for creating the future we want](http://thefearlessheart.org/)
+  * [Core Nonviolence Commitments](http://thefearlessheart.org/resources/core-commitments/)
 
 #### Mindful Approach to Nonviolent Communication
 
