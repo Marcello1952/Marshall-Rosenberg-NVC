@@ -11,7 +11,7 @@
 ## Contents
 
 * [Introduction](#introduction)
-* [Healing](#healing)
+* [Healing Empathy](#healing-empathy)
   * [Role Play](#role-play)
 * [Meditation](#mediation)
   * [Married Couples](#married-couples)
@@ -31,7 +31,7 @@ In this session, I will show just how powerful that process can be in:
 * **mediating conflicts between people** 
 * **_reconciling groups that are at war with each other to see how they can live in peace and harmony_**. 
 
-## The power of empathy 
+## Healing Empathy 
 
 #### First, let's look at how empathy supports healing. 
 
