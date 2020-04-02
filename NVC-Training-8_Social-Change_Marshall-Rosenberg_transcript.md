@@ -245,7 +245,7 @@ So we organized this strike, the parents took the children out of school. They m
 31:24  
 The project was successful in helping that parents finally getting the communication with the authorities that they needed, to get their needs understood, and to find a way of changing policies so that they felt that their children are better protected. 
 
-To go about social change of this variety, where we don't see people as evil who are doing the actions that we see interfering with our needs being fulfilled, to go about social change out of that energy requires, at times doing some despair work. 
+To go about social change of this variety, where we don't see people as evil who are doing the actions that we see interfering with our needs being fulfilled, to go about social change out of that energy requires, at times doing some [despair work](https://archive.org/details/despairpersonalp00macyrich). 
 
 Despair work as defined by [Joanna Macy](https://www.joannamacy.net/main). This kind of despair work helps us to deal with the pain that we're feeling as a result of what is happening, out of our feeling of powerlessness to do anything about it. 
 
