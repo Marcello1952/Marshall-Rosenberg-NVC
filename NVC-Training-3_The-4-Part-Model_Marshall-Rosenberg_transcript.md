@@ -42,7 +42,7 @@ First of all, it's very important to be able to made clear observations to peopl
 
 For example, I was working with some school administrators in the United States, in a school system, and I was teaching these principles of schools how to evaluate teachers performance. They were required to do this twice a year to evaluate teachers performances. They would observe the teachers in various situations, and then have a session with the teacher where they would evaluate the teacher. 
 
-In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a non violent communication way.
+In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a nonviolent communication way.
 
 ## Observation and Evaluation
 
@@ -376,7 +376,7 @@ I said just what's happening between you and me right now is much of what I want
 
 > In nonviolent communication, we say what is alive in us, what we're observing, feeling, and needing. We make clear requests presented, as best we can, in a way that people can trust it is a request and not a demand. 
 
-Now, some messages are really hard to say in a non violent communication way. Some of these messages are very important to be able to say. For example, the word no.
+Now, some messages are really hard to say in a nonviolent communication way. Some of these messages are very important to be able to say. For example, the word no.
 
 ### Saying No
 
@@ -404,7 +404,7 @@ Or would you be willing to ask, and then I might say someone else around the hou
 * Second, we don't say "no", we don't say "I can't", we say the need that keeps us from saying yes. 
 * we end with a request that searches for a way to get everybody's needs met. 
 
-*Another message that's hard to say in a non violent communication way.*
+*Another message that's hard to say in a nonviolent communication way.*
 
 ### More Constructive than Criticism
 
@@ -518,7 +518,7 @@ Strategies that are destructive, first of all, because they're not possible, or 
 
 Now love many people use in a different way than as a need. Some people use the word love as a feeling. **Nonviolent communication suggests that we use the word love solely as a need and not as a feeling.** If we're trying to express emotions, then use other words beside love for describing what we are feeling. 
 
-To make this clear for people I tell a little story about a person asks their partner, "*do you love me*" and the partner uses non violent communication, and the partner knows how important it is to be clear what people mean by love. 
+To make this clear for people I tell a little story about a person asks their partner, "*do you love me*" and the partner uses nonviolent communication, and the partner knows how important it is to be clear what people mean by love. 
 
 So the partner says, *when you ask, do I love you? Are you using the word love as a feeling?*
 
@@ -585,7 +585,7 @@ In nonviolent communication, it's never our objective to get what we want. It's 
 
 She said, Oh, so I'm supposed to do all the cleaning around the house, myself, and my needs don't count? 
 
-I said now. I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of non violent communication.** 
+I said, now I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of nonviolent communication.** 
 
 This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear a request as a demand, this threatens their need for autonomy, and makes it harder for them to enjoy giving. We need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
 

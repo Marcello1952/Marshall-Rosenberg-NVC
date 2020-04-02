@@ -200,9 +200,21 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
 | **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
 
-> Satisfiers also have different characteristics: they can be violators or destroyers, pseudosatisfiers, inhibiting satisfiers, singular satisfiers, or synergic satisfiers. Max-Neef shows that certain satisfiers, promoted as satisfying a particular need, in fact inhibit or destroy the possibility of satisfying other needs: eg, the arms race, while ostensibly satisfying the need for protection, in fact then destroys subsistence, participation, affection and freedom; formal democracy, which is supposed to meet the need for participation often disempowers and alienates; commercial television, while used to satisfy the need for recreation, interferes with understanding, creativity and identity - the examples are everywhere.
-> 
-> Synergic satisfiers, on the other hand, not only satisfy one particular need, but also lead to satisfaction in other areas: some examples are breast-feeding; self-managed production; popular education; democratic community organisations; preventative medicine; meditation; educational games.
+
+## Jakal and Giraffe Language
+
+* [Compassionate Communication by Marshall B. Rosenberg, Ph.D.](https://www.naturalchild.org/articles/marshall_rosenberg/compassionate_communication.html)
+  > At an early age, most of us were taught to speak and think Jackal. This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately it provokes defensiveness, resistance and counterattack. Giraffe bids us to speak from the heart, to talk about what is going on for us - without judging others. In this idiom, you give people an opportunity to say yes, although you respect no for an answer. Giraffe is a language of requests; Jackal is a language of demands.
+
+![](https://giraffeincblog.files.wordpress.com/2011/02/jakal-giraffe1.jpg)
+
+* [Giraffe Language: Changing Learned Communication Patterns](https://giraffeincblog.com/2011/02/25/jackal-and-giraffe-language/)
+  > Giraffe Language is interpersonal communication divided into two fundamental genres: “jackal” and “giraffe.” From infancy our culture teaches us to speak “jackal,” a language of demands that provoke defensiveness, resistance and counterattack. “giraffe,” on the other hand, is the language of requests that allows us to communicate with others in respectful, compassionate ways. Why giraffe? Because giraffes have the largest hearts of all land animals (up to 40 lbs!). Jackals, due to their low proximity to the ground, tend to see just what’s under their noses. Jackal language symbolizes short-sighted, self-protecting, limited communication.
+* [Non-violent communication: are you a jackal or a giraffe?](https://arielfreespirit.wordpress.com/2017/03/14/non-violent-communication-are-you-a-jackal-or-a-giraffe/)
+  > I’ve recently watched a quite lengthy but fun presentation by psychologist Marshall Rosenberg on non-violent communication. I highly recommend it: that man’s a stand-up comedian. Rosenberg coined the terms giraffe and jackal language in interpersonal communication, where the former is the language of the heart, the giraffe being the animal with the largest heart (up to 40 lbs), while the latter is a language of criticism and demands that only triggers counterattack and defensiveness. He describes an easy six-step approach to having productive communication as a giraffe in conflictual situations that I’ll try to do justice to.
+* [“GIRAFFE LANGUAGE” AND “JACKAL LANGUAGE”: A STUDY OF TWO OPPOSITE COMMUNICATION RITUALS](http://journalarticle.ukm.my/5338/1/V28_1_1-16.pdf) - Jurnal Komunikasi Malaysian Journal of Communication 
+  > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
+* [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
 
 
 ## Jakal and Giraffe Language
@@ -240,6 +252,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Radical Compassion](http://radicalcompassion.squarespace.com/) - Integrating Nonviolent Communication
   * [Essence of NVC Recordings](http://radicalcompassion.squarespace.com/files/essence-of-nvc-recordings/) 
 * [The Nonviolent Communicator: an NVC Tool](http://www.nvccommunicator.com/) - An online tool to help you create a communication that honors the NVC structure, and helps you identify the emotions you are feeling. Based on the The 4-Part Nonviolent Communication (NVC) Process model developed by Marshall B. Rosenberg, Ph.D.
+* [baynvc - Free worksheets and journalling guides](https://baynvc.org/free-worksheets/)
 
 ### Additional Video
 
@@ -258,11 +271,19 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [The scientifically proven, step-by-step guide to having a breakthrough conversation across party lines](https://qz.com/838321/nonviolent-communication-the-scientifically-proven-step-by-step-guide-to-having-a-breakthrough-conversation-across-party-lines/)
 * [Collaborative Communication & Email: Best Practices (or How Not to Drive Your Colleagues Entirely Crazy)](https://baynvc.org/collaborative-communication-email-best-practices-or-how-not-to-drive-your-colleagues-entirely-crazy/)
 
-### Other
+## Other
 
 * [Emotional Competency - Study Guide](http://www.emotionalcompetency.com/searchsite.htm)
-  > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
+  > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. 
+  >
+  > You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
 * [Atlass of Emotions](http://atlasofemotions.org/)
+* [Miki Kasthan - The Inseparability of Psychological and Social Transformation](https://podcasts.apple.com/us/podcast/emerge-making-sense-of-whats-next/id1057220344?i=1000431035111)
+  > We talk about how economic and cultural systems inform our psychology, why none of us can know what ‘human nature’ is, the necessity of communities of practice for those who seek to transform their consciousness, how to practice full spectrum nonviolence, the unsettling power of moral authority, and the central significance of connecting with and expressing our biological needs.
+* [Ep. 37 Miki Kashtan on the three shifts needed for self-managing organisations to thrive](https://podcasts.apple.com/dk/podcast/ep-37-miki-kashtan-on-three-shifts-needed-for-self/id1234632893?i=1000450072937)
+  > Miki Kashtan is an author, international teacher and practitioner of Nonviolent Communication. In this conversation we talk about the three different places shifts need to occur in order for a self-managing human system to thrive. She also shares the five core systems we need to redesign in our organisations as well as the mindset shifts and dialogue skills we need to develop in order to collaborate on a deeper, more purposeful level.
+* [The Fearless Heart: Inspiration and tools for creating the future we want](http://thefearlessheart.org/)
+  * [Core Nonviolence Commitments](http://thefearlessheart.org/resources/core-commitments/)
 
 #### Mindful Approach to Nonviolent Communication
 
@@ -274,6 +295,16 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
 * [Ep. 86 - Oren Jay Sofer - Metta Hour with Sharon Salzberg](https://beherenownetwork.com/sharon-salzberg-metta-hour-ep-86-oren-jay-sofer/)
   > Oren Jay Sofer is a member of the Spirit Rock Teacher’s Council, a Certified Trainer of Nonviolent Communication, and a Somatic Experiencing Practitioner for healing trauma. His first book, “Say What You Mean” comes out in December 2018. In this conversation, Sharon and Oren discuss how Oren came to the path of meditation practice, and his time spent in the East. They also discuss the many nuances of effective communication both related to mindfulness practice, somatic healing, and the application of non-violent communication. The conversation closes with Oren leading a short guided meditation. For more information, visit orenjaysofer.com.
+
+#### Richard Layard 
+
+* [A Generous-Hearted Life](https://www.imf.org/external/pubs/ft/fandd/2015/12/people.htm) - Alan Wheatley profiles Richard Layard, who believes the basic purpose of economics is the maximization of happiness and well-being
+  > as Layard sees it, along the way economics partly lost sight of this original purpose. The maximization of utility, or happiness, became conflated with the maximization of consumption and then with income and GDP. Layard’s contribution, along with that of other economists, including Andrew Oswald of Warwick University, is to have helped reassert the importance of factors other than income in determining happiness.
+  > 
+  > “To understand how the economy actually affects our well-being, we have to use psychology as well as economics,” was how Layard put it in one of a trio of lectures he gave on the topic at the LSE in 2003. GDP, he added, was a “hopeless measure of welfare.” Those lectures were the germ of a best-selling book published in 2005, Happiness: Lessons from a New Science, in which he argued that seven major factors affect how happy we are, defined as enjoying life and feeling wonderful: our family relationships, financial situation, work, community and friends, health, personal freedom, and personal values.
+* ['happiness tsar', Richard Layard, thinks he knows why we're all so miserable](https://www.theguardian.com/lifeandstyle/2008/jun/24/healthandwellbeing.schools)
+  > Layard is quietly effecting a revolution in this miserable, materialistic, overworked country. A Labour peer since 2000, he has been able to influence first Blair's administration and then Brown's into making his happiness agenda government policy. His calls for cognitive behavioural therapy (CBT), for school lessons in emotional intelligence, and other allegedly happiness-causing reforms have been greeted warmly by education secretary Ed Balls, health secretary Alan Johnson, the health guideline-setting National Institute for Clinical Excellence and by local authorities up and down the country. Layard is founder director of the Centre for Economic Performance at the London School of Economics, and runs its Well-Being programme. He speaks cheerfully of how the word "well-being" now figures in job titles at government departments, how the new government policy includes commitments to well-being, how the Office for National Statistics is developing the measurement of well-being, how Ed Balls's Social and Emotional Aspects of Learning programme is devoted to making secondary school children focused on well-being. For Layard, you see, well-being is just another way of saying happiness.
+* [Action for Happiness](https://www.actionforhappiness.org/)
 
 #### Non-Defensive Communication
 
@@ -289,9 +320,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > 
   > CNVC is a steward of the integrity of the NVC process and a nexus point of NVC-related information and resources, including training, conflict resolution, projects and organizational consulting services. CNVC’s mission is to contribute to more sustainable, compassionate, and “life-serving” human relations in the realms of personal change, interpersonal relationship and in social systems and structures, such as business/economics, education, justice, healthcare, and peace-keeping. NVC work is being done in over 65 countries and growing, touching the lives of hundreds of thousands of people around the world
 
-#### Credits
-
-[https://www.cnvc.org/legal](https://www.cnvc.org/legal)
+#### [cnvc.org/legal](https://www.cnvc.org/legal)
 
 > All of the material on our website is available for public use. It can be downloaded reprinted and distributed freely. We request that you include at the bottom:
 > 
