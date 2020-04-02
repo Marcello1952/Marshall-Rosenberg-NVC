@@ -7,37 +7,85 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9)\
 
 
+## Contents
+
+* [Introduction](#introduction)
+* [Expressing Gratitude](#expressing-gratitude)
+
+
 ## Introduction
 
 0:00  
 In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what nonviolent communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
 
-In an earlier session, I described the spirituality that nonviolent communication was designed to serve this process nonviolent communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place. It's a great tool to support our being conscious of what's alive than others, and to hear what's alive and others in a way that makes giving enjoyable It's a process that helps us to share that information with others, how to be honest and share what's alive in us in a way that enables others to enjoy compassionately giving to us. 
+In an earlier session, I described the spirituality that nonviolent communication was designed to serve. **This process nonviolent communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place**. It's a great tool to support our being conscious of what's alive than others, and to hear what's alive and others in a way that makes giving enjoyable. 
 
-A very important component in keeping this consciousness alive in us is the process of expressing gratitude to one another in a way that can be trusted, that it is a celebration of life, and not a form of communication that's designed to manipulate us to do things that others want. 
+It's a process that helps us to share that information with others, how to be honest and share what's alive in us in a way that enables others to enjoy compassionately giving to us. 
 
-To clarify this, I'd like to make a difference between sincere gratitude and praise and compliments, very clear. Praise and compliments are given for the purpose of rewarding. Parents, teachers, managers and industry that I have worked with, have told me that they have been in programs that have taught them that if you praise and compliment people daily, they work harder. So parents use praise and compliments, to reward their children, to do things around the house that they want them to do. 
+A very important component in keeping this consciousness alive in us is the process of expressing gratitude to one another, in a way that can be trusted, that it is a celebration of life, and not a form of communication that's designed to manipulate us to do things that others want. 
 
-Teachers have been educated to use praise and compliments to get students to work harder. Managers and industry tell me that they have been through similar programs. I point out to all of these groups, if they look at the research based on people using praise and compliments as rewards, they'll see that it isn't that effective when used as a reward. It's only effective for a short time until the people see that the praise and the compliments are really not sincere expressions of gratitude. But they are at attempt to manipulate them to behave in ways that others want them to behave. And research shows that when people see that they sense that the praise and compliments are given out of that energy, they lose their desire to work harder and to contribute to what the authorities want them to do. 
+To clarify this, I'd like to make a difference between sincere gratitude and praise and compliments, very clear. **Praise and compliments are given for the purpose of rewarding**. 
 
-So from the very beginning, I'd like to make it clear that the way of expressing gratitude that we'll be talking about in this session, the intent is to celebrate life, Not to reward people for doing what we want them to do. And by celebrating life, I mean that we let people know how our needs have been fulfilled and how our life has been enriched by something they have done. And then our only intention is to celebrate that, and not in any way to put them under pressure to continue doing that which we would like them to do.
+Parents, teachers, managers in industry that I have worked with, have told me that they have been in programs that have taught them that if you praise and compliment people daily, they work harder. 
+
+**Parents** use praise and compliments, to reward their children, to do things around the house that they want them to do. 
+
+**Teachers** have been educated to use praise and compliments to get students to work harder. 
+
+**Managers** in industry tell me that they have been through similar programs. 
+
+I point out to all of these groups, if they look at the research based on people using praise and compliments as rewards, they'll see that it isn't that effective when used as a reward. It's only effective for a short time until the people see that the praise and the compliments are really not sincere expressions of gratitude. 
+
+But *they are at attempt to manipulate them to behave in ways that others want them to behave*. 
+
+Research shows that **when people sense that the praise and compliments are given out of that energy, they lose their desire to work harder and to contribute to what the authorities want them to do**. 
+
+So from the very beginning, I'd like to make it clear that the way of expressing gratitude that we'll be talking about in this session, the intent is to celebrate life, not to reward people for doing what we want them to do. 
+
+By celebrating life, **I mean that we let people know how our needs have been fulfilled, and how our life has been enriched by something they have done**. Our only intention is to celebrate that, and not in any way to put them under pressure to continue doing that which we would like them to do.
+
+## Expressing Gratitude
 
 4:17  
-So the difference between nonviolent communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in nonviolent communication. Gratitude is expressed by saying three things that allow the other person to see how their actions have enriched our lives. Those three things are we tell them what they have done, that has enriched our life. **We express how it has by letting them know the need of ours that was fulfilled by the action, and how we feel as a result of that need being fulfilled.** 
+So the difference between nonviolent communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in nonviolent communication. 
 
-We have talked about this in many other sessions, how to express clear observations, feelings and needs. However, in most of the other sessions, we have been seeing how to do that, as part of our honesty when people have done something that we do not like, that's not in harmony with our well being. 
+#### Gratitude is expressed by saying three things that allow the other person to see how their actions have enriched our lives. 
+
+Those three things are: 
+
+* **We tell them what they have done, that has enriched our life**. (Observation)
+* **We express how it has, by letting them know the need of ours that was fulfilled by the action** (Needs)
+* **How we feel as a result of that need being fulfilled.** (Feelings)
+
+We have talked about this in many other sessions, how to express clear observations, feelings and needs. However, in most of the other sessions, we have been seeing how to do that as part of our honesty when people have done something that we do not like, that's not in harmony with our well being. 
 
 #### When we express gratitude, we use the same ingredients of clear observation, expressions of feelings and needs. 
 
-But now we're talking about actions that have contributed to our well being and needs that have been fulfilled, and the pleasure fulfill things that follow these needs having been fulfilled. The form that is used in nonviolent communication is clear on observation, feelings needs. It's not in the form of compliments which judge people as that was a good thing that you did. You're a kind person, you are very attractive. 
+But now we're talking about actions that have contributed to our well being and needs that have been fulfilled, and the pleasureful things that follow these needs having been fulfilled. 
 
-Instead, we translate any compliments and rewards into a language of life that tells what was done and how life was enriched by it. And the motive is always important to keep clear. We're expressing this not to reward not to manipulate people into doing what we want them to do. We are expressing the gratitude solely to celebrate life. 
+The form that is used in nonviolent communication is clear on observations, feelings needs. 
 
-Now, it's extremely important that we build into our lives, opportunities to exchange sincere gratitude, that we have opportunities to express it to others and to receive it Because every time we receive sincere gratitude, it helps us to remember how good it feels to contribute to the well being of human beings. How good it feels to contribute to our own well being, to the well being of others, how good it feels to celebrate that. 
+It's not in the form of compliments which judge people as that was a good thing that you did. You're a kind person, you are very attractive. 
 
-We'll see in this session that there's many things that happened that block the exchange of sincere gratitude. In my trainings, I do some exercises that not only show people how to express gratitude, but make us highly aware of what are these forces in our lives that keep the flow of sincere gratitude from happening. One of these exercises, I ask people to think of a gratitude they would have loved to have received from somebody but they didn't. 
+Instead, **we translate any compliments and rewards into a language of life that tells what was done and how life was enriched by it**. And the motive is always important to keep clear. We're expressing this not to reward not to manipulate people into doing what we want them to do. 
 
-Then we use that as a chance to practice what it would have sounded like if that person would have known how to express the gratitude in a nonviolent communication manner. That is, what would they have said to have made clear what we did, and how they felt as a result of our doing this and what needed this was met. After the people have written down what the gratitude would have sounded like had it been expressed in a nonviolent communication way, by the other person.
+#### We are expressing the gratitude solely to celebrate life. 
+
+Now, it's extremely important that we build into our lives, opportunities to exchange sincere gratitude, that we have opportunities to express it to others and to receive it. 
+
+> Every time we receive sincere gratitude, it helps us to remember how good it feels to contribute to the well being of human beings. How good it feels to contribute to our own well being, to the well being of others, how good it feels to celebrate that. 
+
+We'll see in this session that there's many things that happen to block the exchange of sincere gratitude. 
+
+In my trainings, I do some exercises that not only show people how to express gratitude, but make us highly aware of what are these forces in our lives that keep the flow of sincere gratitude from happening. 
+
+One of these exercises, **I ask people to think of a gratitude they would have loved to have received from somebody but they didn't**. 
+
+Then we use that as a chance to practice what it would have sounded like if that person would have known how to express the gratitude in a nonviolent communication manner. 
+
+That is, what would they have said to have made clear what we did, and how they felt as a result of our doing this and what was needed that was met. 
+
+After the people have written down what the gratitude would have sounded like had it been expressed in a nonviolent communication way, by the other person.
 
 8:37  
 I asked them to use some imagination to imagine going to that person and doing the following. This might require a bit of imagination on your part, particularly if the other person is no longer alive. I say, whether the person is alive or not, imagine going to that person and telling them that you were in a workshop that asked you to write down a gratitude that you would have loved to have received and didn't. You tell this person, the gratitude that you would have liked to have received and didn't you read it for them so they can hear word for word, what would have sounded so precious for you to have heard. 
