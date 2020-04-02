@@ -585,7 +585,7 @@ In nonviolent communication, it's never our objective to get what we want. It's 
 
 She said, Oh, so I'm supposed to do all the cleaning around the house, myself, and my needs don't count? 
 
-I said now. I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of nonviolent communication.** 
+I said, now I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of nonviolent communication.** 
 
 This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear a request as a demand, this threatens their need for autonomy, and makes it harder for them to enjoy giving. We need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
 
