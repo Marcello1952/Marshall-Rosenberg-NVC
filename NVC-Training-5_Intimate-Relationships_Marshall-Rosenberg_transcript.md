@@ -442,6 +442,6 @@ His wife was so happy just to hear that much. Coming from him is something she h
 Of course, we then went further to help him to see what it would be like to actually express them, and to see that when we express those feelings, those needs which are the most scary for us to express, the not doing it is very costly in the relationship. When we do it vulnerably, without criticism, without demand, and the other person empathically receives it, relationship is going to be powerfully nurtured.
 
 
-## References
+## Resources
 
 * [What's so bad about empathy?](http://archive.boston.com/bostonglobe/editorial_opinion/oped/articles/2009/05/22/whats_so_bad_about_empathy/)
