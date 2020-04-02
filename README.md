@@ -236,6 +236,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Radical Compassion](http://radicalcompassion.squarespace.com/) - Integrating Nonviolent Communication
   * [Essence of NVC Recordings](http://radicalcompassion.squarespace.com/files/essence-of-nvc-recordings/) 
 * [The Nonviolent Communicator: an NVC Tool](http://www.nvccommunicator.com/) - An online tool to help you create a communication that honors the NVC structure, and helps you identify the emotions you are feeling. Based on the The 4-Part Nonviolent Communication (NVC) Process model developed by Marshall B. Rosenberg, Ph.D.
+* [baynvc - Free worksheets and journalling guides](https://baynvc.org/free-worksheets/)
 
 ### Additional Video
 
