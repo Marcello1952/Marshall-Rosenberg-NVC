@@ -96,7 +96,9 @@ Usually this kind of work begins when I ask the other person, in the role of the
 So let's start with that daughter, I'm confident that I can empathically connect with whatever you want to say. So please tell me what's still alive in you, as a result of our prior relationship, that you'd like me to hear.
 
 11:47  
-*I feel worthless and I feel totally rejected by all the men that I touch. I want to be in relationship. I've been through two divorces. And I do not know how to even connect with any man because of you, when I would come to you for any kind of a need that I really wanted you to listen to, you immediately would interrupt and would the first word that would come out of your mouth was that I deserved it and I was totally a no good stupid idiot, and I was a worthless female, girl. All those names are still haunting me every time any man that I have a relationship with his tries to get close to me. I don't trust them. Because of you. It's all because of you and I'm I'm just beyond... That's what's alive right now is that I don't know where to go. I'm 30 years old. I've been through two divorces and I'm miserable and alone.*
+*I feel worthless and I feel totally rejected by all the men that I touch. I want to be in relationship. I've been through two divorces. And I do not know how to even connect with any man because of you, when I would come to you for any kind of a need that I really wanted you to listen to, you immediately would interrupt and would the first word that would come out of your mouth was that I deserved it and I was totally a no good stupid idiot, and I was a worthless female, girl.* 
+
+*All those names are still haunting me every time any man that I have a relationship with his tries to get close to me. I don't trust them. Because of you. It's all because of you and I'm I'm just beyond... That's what's alive right now is that I don't know where to go. I'm 30 years old. I've been through two divorces and I'm miserable and alone.*
 
 13:00  
 Well, I want to be sure that I'm taking all of that in daughter. That's very precious. And I'm grateful to you for willing to open up. But I want to be sure I'm hearing you. So what I'm hearing is that there's still a great deal of pain in you, hurt, that your need for respect wasn't met by the way I would respond to you at times. As a result of that, you're feeling rather desperate about how it's affecting your present relationships with other men, and how it's keeping you from getting your needs for closeness met. Am I hearing you correctly?
@@ -126,7 +128,7 @@ So you're still suffering the pain of those times when you really need understan
 I'd like then, to tell you daughter what goes on in me when I hear this. If you're willing for me to talk now, can you hear me now?
 
 17:01  
-Yes, I can I hope I can.
+*Yes, I can I hope I can.*
 
 17:05  
 First thing I want you to hear is how sad I am this deeply, deeply sad. I would have liked to have met your need for acceptance and I would have liked for your you to feel safe around me. So I'm really sad that I didn't know how to express myself differently when you were young. I was so caught up in pain myself in my relationship with your mother and with other people. So caught up in that pain. And I did not talk about it with people. And I'm sad that it would come out toward you and toward the other children.
@@ -135,14 +137,14 @@ First thing I want you to hear is how sad I am this deeply, deeply sad. I would 
 Could you tell me what you heard me say so I can see if I made myself clear?
 
 17:55  
-What I heard you say is that you are sad for not being able to to be there for me that you're caught up in your own pain with whatever was going on with you and mom and when we wanted you to be just there and loving us that you could not do that. So your sadness right now is very I'm hearing that I never heard that before. I was just scared of you.
+*What I heard you say is that you are sad for not being able to to be there for me that you're caught up in your own pain with whatever was going on with you and mom and when we wanted you to be just there and loving us that you could not do that. So your sadness right now is very I'm hearing that I never heard that before. I was just scared of you.*
 
 18:31  
 And I very much I'm grateful for you hearing me this way. And I'd like to know how you feel when I tell you.
 
 18:40  
-I'm relieved. I'm relieved because I thought I had done something wrong. 
-And I'm sad for you.
+*I'm relieved. I'm relieved because I thought I had done something wrong. 
+And I'm sad for you*.
 
 18:49  
 I'm so sad that I didn't know a way of expressing my pain that would wouldn't have left you feeling there was something wrong with you. I wish I could have just said, at that time, I'm in so much pain daughter, it's hard for me to hear you cry. I wish I could have done anything except communicate in a way that would contribute to your feeling that you weren't valued. So I'm grateful to you for having this dialogue with me now. 
