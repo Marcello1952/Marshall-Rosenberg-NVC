@@ -2,7 +2,7 @@
 **Working with anger, depression, self-judgement, and not giving away our power to cultural programming**
 
 
-> In this session, I would like to focus on how we apply non violent communication within ourselves. Nonviolent communication requires quite a transformation from how many of us have been programmed to communicate. Many of us have been programmed to communicate in a language of categorizing people and their actions to judge what they are, for doing what they're doing.
+> In this session, I would like to focus on how we apply nonviolent communication within ourselves. Nonviolent communication requires quite a transformation from how many of us have been programmed to communicate. Many of us have been programmed to communicate in a language of categorizing people and their actions to judge what they are, for doing what they're doing.
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
@@ -354,7 +354,7 @@ Once again, I would be responsible for how I took it, and how I felt, and they a
 (48:21)
 One of the things that people often go through when they're learning nonviolent communication, and they see how what they're telling themselves creates their feelings, they see that they're killing themselves with thoughts like, "that was a stupid thing to do", and its the way they took it that's making them feel such shame and guilt.
 
-> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying non violent communication long enough that I should no longer think that way. *they judge themselves for judging themselves, which just makes them feel even worse than ever.* 
+> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying nonviolent communication long enough that I should no longer think that way. *they judge themselves for judging themselves, which just makes them feel even worse than ever.* 
 
 We suggest that in learning nonviolent communication is very important to keep conscious at all times: 
 

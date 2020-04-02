@@ -89,7 +89,7 @@ I'll be playing the role of a father who has stimulated a lot of pain in his 30 
 
 #### In this role play, I'll be playing the role of a father who has stimulated great pain for his daughter. 
 
-I'll be using nonviolent communication and demonstrating how empathic connection is used in a non violent communication way. My daughter will not be speaking nonviolent communication. 
+I'll be using nonviolent communication and demonstrating how empathic connection is used in a nonviolent communication way. My daughter will not be speaking nonviolent communication. 
 
 Usually this kind of work begins when I ask the other person, in the role of the person who stimulated the pain, to tell me "what's still alive in you that you would like me to hear? Don't worry about how I receive it, I'm now learning how to respond empathically, so I won't respond as I have in the past." 
 
@@ -313,7 +313,7 @@ So **notice I asked for needs and what I got back for two diagnoses**.
 
 > This is where I think violence is provoked on our planet, when we educate people to think in terms of wrongness of one another, not to think a language of life, to clarify what our needs are and to hear other people's needs. 
 
-Well, they were screaming at each other and took quite a bit of energy just to calm things down. But I went back then to the chief who screamed "murder", and using non violent communication, and being conscious that all such criticism and judgment are tragic expressions of the speaker's needs, I tried to sense what the need was behind that judgment. 
+Well, they were screaming at each other and took quite a bit of energy just to calm things down. But I went back then to the chief who screamed "murder", and using nonviolent communication, and being conscious that all such criticism and judgment are tragic expressions of the speaker's needs, I tried to sense what the need was behind that judgment. 
 
 I said to the chief who screamed it. I said, *Chief, are you saying that your need for safety isn't being met, and that you would like some reassurance that whatever conflicts exist, you would want them to be resolved without violence*. 
 
@@ -354,7 +354,7 @@ No, I'm convinced we don't have to have violence if we can learn how to connect 
 42:51  
 #### So that's how nonviolent communication can support us in mediation. 
 
-If we are skilled at nonviolent communication, and a group invites us to come in and mediate, like I was invited to mediate between the Christian tribes and the Muslim tribes, we can loan our non violent communication skills, we can loan our empathy skills by helping each side translate their criticism or judgments of the other into their needs, and then helping the other side to hear it. 
+If we are skilled at nonviolent communication, and a group invites us to come in and mediate, like I was invited to mediate between the Christian tribes and the Muslim tribes, we can loan our nonviolent communication skills, we can loan our empathy skills by helping each side translate their criticism or judgments of the other into their needs, and then helping the other side to hear it. 
 
 Now, we can do that even when we're not invited in as a mediator, when we have these skills within our families, if we see two of the children fighting with each other, blaming each other, we can do the same thing, even though it wouldn't be seen as an official mediation. 
 

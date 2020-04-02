@@ -329,7 +329,7 @@ At one point, I got very emotional thinking of what these wives must go through,
 
 **I couldn't believe that I would cry in front of a group of top executives in a corporation** and when I looked up, I was expecting everybody to be contempt. And they were, I saw in everybody's eyes, you know. "What is wrong with this guy?" Especially the boss of the group, he just looked like, you know, how could any man cry in a setting like this? 
 
-I was glad that I had my non violent communication skills because from the look on all of their faces, if I hadn't tried to empathize with what was going on in them, I could have easily taken it that I'm not a real human male, that I'm disgusting. 
+I was glad that I had my nonviolent communication skills because from the look on all of their faces, if I hadn't tried to empathize with what was going on in them, I could have easily taken it that I'm not a real human male, that I'm disgusting. 
 
 It wasn't easy, but I got up my courage and I tried to check out what was going on in them. 
 

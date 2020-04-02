@@ -323,7 +323,7 @@ What I'm inclined to do, if I'm not sure is to just ask the person, is there mor
 *Another message that I have found very important to hear empathically is the message No.* I don't want to, or I'm not willing.
 
 39:16  
-In our non violent communication training, we show people how to hear the human behind the no. To be conscious that, if we hear a no, we're hearing very little about what's really alive in this person at this moment. We need to do the same thing with the no as we do if somebody is telling us what's wrong with us, to hear through the message to what is alive and the person when they say this. 
+In our nonviolent communication training, we show people how to hear the human behind the no. To be conscious that, if we hear a no, we're hearing very little about what's really alive in this person at this moment. We need to do the same thing with the no as we do if somebody is telling us what's wrong with us, to hear through the message to what is alive and the person when they say this. 
 
 **More specifically, what are they feeling and needing?** 
 
