@@ -354,7 +354,7 @@ Once again, I would be responsible for how I took it, and how I felt, and they a
 (48:21)
 One of the things that people often go through when they're learning nonviolent communication, and they see how what they're telling themselves creates their feelings, they see that they're killing themselves with thoughts like, "that was a stupid thing to do", and its the way they took it that's making them feel such shame and guilt.
 
-> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying nonviolent communication long enough that I should no longer think that way. *They judge themselves for judging themselves, which just makes them feel even worse than ever.* 
+> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying nonviolent communication long enough that I should no longer think that way. *they judge themselves for judging themselves, which just makes them feel even worse than ever.* 
 
 We suggest that in learning nonviolent communication is very important to keep conscious at all times: 
 
