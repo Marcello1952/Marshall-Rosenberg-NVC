@@ -380,3 +380,4 @@ The person whose house was destroyed, may request support in rebuilding the hous
 * [Shame, shaming and restorative justice - A critical appraisal](https://www.researchgate.net/publication/292715115_Shame_shaming_and_restorative_justice_A_critical_appraisal), Nathan Harris and Shadd Maruna
 * [Justice in America Episode 19: What Justice Could Look Like](https://theappeal.org/justice-in-america-episode-19-what-justice-could-look-like/) (podcast)
   > Josie and Clint talk to Sonya Shah, an associate professor at the California Institute of Integral Studies, about restorative justice. 
+* [Restoritive Justice -NVCWiki](https://en.nvcwiki.com/index.php/Restorative_justice)

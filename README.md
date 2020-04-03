@@ -244,6 +244,8 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   * [COURAGEOUS COMMUNICATION](http://opencommunication.org/CourageousCommunication-PeggySmith.pdf) by Peggy Smith, CNVC certified NVC Trainer - a Nonviolent Communicaton Curriculum for the Maine Coastal Regional Reentry Center
 * [Transcript of 2-Day Advanced Intensive NVC: Nonviolent Communication](http://eqi.org/p3/unfin/nvc_advanced_training.htm) by Marshall Rosenberg, Ph.D
   > The following is a slightly edited transcript of a training Marshall Rosenberg led on Bainbridge Island, Washington, USA, October 20-21, 2000. We are grateful to Lin Rose for transcribing this training. Please note that Marshall sometimes uses Giraffe and Jackal as metaphors for Nonviolent Communication and life-alienated thinking and speaking, respectively.
+* [Nonviolent Communication](https://issuu.com/nonviolent) Salzburg, Austria - Nonviolent Communication books. Feelings and needs based communication.
+
 
 ### Podcasts
 
@@ -266,9 +268,13 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Compassionate Communication](https://podcasts.apple.com/us/podcast/compassionate-communication/id379647090)
   * [An Introduction to Compassionate Communication](https://podcasts.apple.com/us/podcast/an-introduction-to-compassionate-communication/id379647090?i=1000447680657)
     > This opening episode will give listeners an introduction to the powerful tools of Compassionate Communication. Joining Scott will be some of his friends and clients, sharing their stories of how these tools have transformed their lives. Each individual's success story will be connected to at least one specific principle of Compassionate Communication (aka: Nonviolent Communication). Joining Scott will be Katrina Vaillaincourt, a single mother who has used these tools to support her relationships with her ex-husband and her 11-year-old son. Visit www.LoveCoachScott.com for free worksheets.
+* [PEACE TALKS: NONVIOLENT COMMUNICATION WITH MARSHALL ROSENBERG](http://www.goodradioshows.org/peaceTalksL36.html) (KUNM Airdate: 2/24/06)
+  > This time on Peace Talks, Nonviolent Communication (NVC) with Marshall Rosenberg. NVC is a verbal technology for exchanging information and resolving differences peacefully. Marshall Rosenberg, who founded the NVC technique is captured before a live Albuquerque audience talking about how this communication style helps to resolve conflict. He also helps members of the studio audience develop solutions to conflict scenarios using the principles of Nonviolent Communication. Co hosts: Paul Ingles and Suzanne Kryder.
+
 
 ### Additional Video
 
+* [Media - NVCWiki](https://en.nvcwiki.com/index.php/Media)
 * [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
 * [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
 * [NVC Academy](https://www.youtube.com/user/nvcacademy)

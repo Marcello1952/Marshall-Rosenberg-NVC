@@ -452,6 +452,7 @@ I'd like us to wonder whether we have fully developed our ability to see that pe
 
 ## Resources
 
+* [Anger and Domination Systems](https://www.cnvc.org/what-nvc/articles-writings/anger-and-domination-systems/anger-and-domination-systems)
 * [Stanford Prison Experiment](https://www.prisonexp.org/)
 * [Stanley Milgram](https://www.simplypsychology.org/milgram.html)
 * [Naming the Powers: The Language of Power in the New Testament](https://books.google.com/books/about/Naming_the_Powers.html?id=ziOGWGSx_qEC), Walter Wink
