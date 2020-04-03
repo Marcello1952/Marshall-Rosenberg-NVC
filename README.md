@@ -22,8 +22,10 @@
 * [Human Needs and Human-scale Development](#human-needs-and-human-scale-development)
 * [Jakal and Giraffe Language](#jakal-and-giraffe-language)
 * [Resources](#resources)
+  * [Podcasts](#podcasts)
+  * [Research](#research)
+* [Other](#other)
   * [A Mindful Approach to Nonviolent Communication](#mindful-approach-to-nonviolent-communication)
-  * [Non-defensive Communication](#non-defensive-communication)
 * [Center for Non-Violent Communication](#center-for-non-violent-communication)
 
 ## Core Presentations - NVC - Marshall Rosenberg
@@ -225,6 +227,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   * [Requests vs. Demands exercise](https://en.nvcwiki.com/index.php/Requests_vs._Demands_exercise)
   * [Observations vs. Evaluations exercise](https://en.nvcwiki.com/index.php/Observations_vs._Evaluations_exercise)
 * [NonviolentCommunication.com](https://nonviolentcommunication.com/)
+* [r/NVC](https://www.reddit.com/r/NVC/) - A subreddit about Nonviolent Communication.
 * [Free Non-Violent Communication Resources](http://nvctraining.com/courses/free-courses/index.html)
 * [NVC-UK - Free Resources](https://nvc-uk.com/resources_category/free-resources/)
 * [Donal Gannon - NVC MATERIALS](https://www.donalgannon.com/nvc-materials)
@@ -237,6 +240,30 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   * [Essence of NVC Recordings](http://radicalcompassion.squarespace.com/files/essence-of-nvc-recordings/) 
 * [The Nonviolent Communicator: an NVC Tool](http://www.nvccommunicator.com/) - An online tool to help you create a communication that honors the NVC structure, and helps you identify the emotions you are feeling. Based on the The 4-Part Nonviolent Communication (NVC) Process model developed by Marshall B. Rosenberg, Ph.D.
 * [baynvc - Free worksheets and journalling guides](https://baynvc.org/free-worksheets/)
+* [Open Communication](http://opencommunication.org) is dedicated to bringing Nonviolent CommunicationSM and empathy skills to Maine and the surrounding region.
+  * [COURAGEOUS COMMUNICATION](http://opencommunication.org/CourageousCommunication-PeggySmith.pdf) by Peggy Smith, CNVC certified NVC Trainer - a Nonviolent Communicaton Curriculum for the Maine Coastal Regional Reentry Center
+
+### Podcasts
+
+* [Connecting Across Differences](https://workcollaboratively.com/podcast/) - [itunes](https://podcasts.apple.com/us/podcast/connecting-across-differences/id1105444502?mt=2)
+  > Connecting Across Differences is a podcast by Dian Killian, Ph.D. of Work Collaboratively about having greater empathy for yourself and others, and how to hear others more deeply and make sure that you’ve been heard.  Episodes are available on iTunes and you can also find a complete list here.
+    * Episode 1: [Making Observations](https://workcollaboratively.com/2016/04/19/connecting-across-differences-episode-1-making-observations/)
+      > In the first episode, Dian focuses on key principles from her book, [Urban Empathy](http://bit.ly/urbanempathy), that can make a difference for you in your life and in your relationships. **Urban Empathy** is a book of illustrated actual verbatim stories set in New York City that show how outcomes can be radically different when we learn to listen deeply to others.
+    * Episode 2: [The Four Steps of Collaborative (Nonviolent) Communication](https://workcollaboratively.com/2016/05/03/connecting-across-differences-episode-2-the-four-steps-of-collaborative-nonviolent-communication/)
+      > 1. Observation – exactly what you heard the person say or what you saw them do
+      > 2. Feelings – noticing what you’re feeling or what the other person is feeling, free of judgment.
+      > 3. Needs – noticing what your needs are and what the other person’s needs are, free of strategy.
+      > 4. Requests–connection requests (checking in) and/or strategy requests that are clear/concrete, positive, doable and free of demand
+    * Episode 3: [Practicing Self Empathy](https://workcollaboratively.com/2016/05/17/connecting-across-differences-episode-3-practicing-self-empathy/)
+    * Episode 4: [Making Requests](https://workcollaboratively.com/2016/06/06/connecting-across-differences-episode-4-making-requests/)
+    * Episode 5: [Connection Requests](https://workcollaboratively.com/2016/06/22/connecting-across-differences-episode-5-connection-requests/)
+    * Episode 6: [Strategy Requests](https://workcollaboratively.com/2016/07/06/connecting-across-differences-episode-6-strategy-requests/)
+* [The Art of NVC](https://podcasts.apple.com/us/podcast/the-art-of-nvc/id1475378906)
+  > This Podcast is dedicated to sharing, learning, and discovering the fundamentals of Nonviolent Communication based on what I have learned from Marshall Rosenberg's classic book "Nonviolent Communication" and many of his videos. It is my intention to share what I have learned and to help those who truly want to become better communicators to avoid some of the common mistakes I see over and over when people attempt to practice NVC. It is truly an amazingly powerful way of speaking and being and I am excited to go on this journey with you.
+* [NVCPractice](https://podcasts.apple.com/us/podcast/the-nvcpractice-com-podcast/id1128053708) - This is an archive of NVC-influenced conversations.
+* [Compassionate Communication](https://podcasts.apple.com/us/podcast/compassionate-communication/id379647090)
+  * [An Introduction to Compassionate Communication](https://podcasts.apple.com/us/podcast/an-introduction-to-compassionate-communication/id379647090?i=1000447680657)
+    > This opening episode will give listeners an introduction to the powerful tools of Compassionate Communication. Joining Scott will be some of his friends and clients, sharing their stories of how these tools have transformed their lives. Each individual's success story will be connected to at least one specific principle of Compassionate Communication (aka: Nonviolent Communication). Joining Scott will be Katrina Vaillaincourt, a single mother who has used these tools to support her relationships with her ex-husband and her 11-year-old son. Visit www.LoveCoachScott.com for free worksheets.
 
 ### Additional Video
 
@@ -254,6 +281,23 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [cnvc.org - Articles](https://www.cnvc.org/learn-nvc/articles)
 * [The scientifically proven, step-by-step guide to having a breakthrough conversation across party lines](https://qz.com/838321/nonviolent-communication-the-scientifically-proven-step-by-step-guide-to-having-a-breakthrough-conversation-across-party-lines/)
 * [Collaborative Communication & Email: Best Practices (or How Not to Drive Your Colleagues Entirely Crazy)](https://baynvc.org/collaborative-communication-email-best-practices-or-how-not-to-drive-your-colleagues-entirely-crazy/)
+
+### Research
+
+* [**NVC Research	- NVC Global**](https://nvc-global.net/nvc-research/)
+* [**Recent papers in Nonviolent Communication (NVC) - academia.edu**](https://www.academia.edu/Documents/in/Nonviolent_Communication_NVC_)
+* [**Archive CNVC Research**](http://web.archive.org/web/20170210161629/https://www.cnvc.org/about-us/projects/nvc-research)
+* [What is the impact of the application of the Nonviolent communication model on the development of empathy? Overview of research and outcomes.](https://www.cnvc.org/sites/default/files/NVC_Research_Files/Carme_Mampel_Juncadella.pdf) MSc in Psychotherapy Studies
+* [An exploratory study: Non-violent communication strategies for secondary teachers using a Quality Learning Circle approach](https://www.cnvc.org/sites/default/files/research/Lee_Hooper_Master's%20Thesis.pdf) Lee Hooper
+* [The value of openness in e-relationships: Using Nonviolent Communication to guide online coaching and mentoring.](https://psycnet.apa.org/record/2007-06344-005)
+* [SUMMATIVE EVALUATION OF A WORKSHOP IN COLLABORATIVE COMMUNICATION](https://etd.library.emory.edu/concern/etds/br86b380s?locale=it)
+* [Case Study of Tekoa Institute: Illustration of Nonviolent Communication Training’s Effect on Conflict Resolution](vtechworks.lib.vt.edu/bitstream/handle/10919/31744/AnashThesis.pdf)
+* [Freedom Project: Nonviolent Communication and Mindfulness Training in Prison](https://journals.sagepub.com/doi/epub/10.1177/2158244013516154)
+* [DEVELOPING NONVIOLENT COMMUNICATION:AN INTEGRAL APPROACHAN INTEGRAL APPROACH](https://kupdf.net/download/beck-developing-nvc-integral-approach_5c8cfa76e2b6f5a157cbcc0d_pdf), Simon R. Beck
+* [A step toward violence prevention: "Non-Violent Communication" as part of a college curriculum](http://fau.digital.flvc.org/islandora/object/fau%3A9751) Susan M Blake
+* [Assessing the Impact of Nonviolent Communication - An Outcome Evaluation](https://www.ganvc.org/research/EVAL-2011-Final.pdf), Molly Burleson, Monique Martin, Rashunda Lewis
+
+[![](https://i.redd.it/5t3cpkiw3rp41.jpg)](https://www.reddit.com/r/NVC/comments/frlfcy/hey_i_found_this_nonviolent_communicating_guide/)
 
 ## Other
 
