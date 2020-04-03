@@ -83,7 +83,7 @@ One of these exercises, **I ask people to think of a gratitude they would have l
 
 Then we use that as a chance to practice what it would have sounded like if that person would have known how to express the gratitude in a nonviolent communication manner. 
 
-That is, what would they have said to have made clear what we did, and how they felt as a result of our doing this and what was needed that was met. 
+That is, what would they have said, to *make clear what we did*, and *how they felt as a result* of our doing this, and *what was needed that was met*. 
 
 After the people have written down what the gratitude would have sounded like had it been expressed in a nonviolent communication way, by the other person.
 
