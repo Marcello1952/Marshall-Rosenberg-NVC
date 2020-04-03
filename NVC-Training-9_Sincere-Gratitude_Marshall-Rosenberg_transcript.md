@@ -13,11 +13,13 @@
 * [Expressing Gratitude](#expressing-gratitude)
 * [Exercises in Gratitude](#exercises-in-gratitude)
 * [What keeps us from expressing gratitude?](#what-keeps-us-from-expressing-gratitude)
-* [Confirmation that we are serving life](#confirmation-that-we-are-serving-life)
-* [What else keeps us from expressing gratitude](#what-else-keeps-us-from-expressing-gratitude)
-* [What Gratitude haven't I expressed yet?](#what-gratitude-havent-i-expressed-yet)
-* [Marshall's Uncle who took care of Grandmother](#marshalls-uncle-who-took-care-of-grandmother)
-* [Other reasons we don't express gratitude?](#other-reasons-we-dont-express-gratitude)
+* [What gratitude haven't I expressed yet?](#what-gratitude-havent-i-expressed-yet)
+* [Marshall's uncle who took care of grandmother](#marshalls-uncle-who-took-care-of-grandmother)
+* [Other reasons we don't express gratitude](#other-reasons-we-dont-express-gratitude)
+* [Receiving Gratitude](#receiving-gratitude)
+  * [Why it's so difficult to receive gratitude](#why-its-so-difficult-to-receive-gratitude)
+* [The Gratitude Book](#the-gratitude-book)
+* [Non-sneaky Bragging](#non-sneaky-bragging)
 
 ## Introduction
 
@@ -141,7 +143,7 @@ There's no space in that kind of thinking for sincere gratitude to be part of th
 
 If they know that it is their obligation, why bother to have to hear any gratitude, you just do the work because, you know, it is your obligation or duty. 
 
-## Confirmation that we are serving life
+### Confirmation that we are serving life
 
 To get people out of this framework, I've been telling a story for years. This funny story, jolts a lot of people out of this idea that we don't need gratitude. It's just if we do things out of the proper energy, that should be enough, why bother to get any gratitude? 
 
@@ -166,8 +168,6 @@ It has been my experience that there is nothing more fulfilling for human beings
 The more we carry that energy within us, that comes when we receive this confirmation, the easier it is to continue to relate in a compassionate way with other people, even under difficult conditions. 
 
 What can feel better than using this power we have to enrich life, in the service of life, and seeing how our efforts have made life more wonderful for people? 
-
-## What else keeps us from expressing gratitude?
 
 Given its importance and power, it's all the more important that we look at what is keeping us from doing it. 
 
@@ -233,7 +233,7 @@ And I said, Could you give me an example of one of the things that she did that 
 
 He said, Well, there's so many things she did. It's hard to pick one out. He said, Well, as your mother told you about the time that she brought Taylor and his wife and two children into the house when they lost their house during the depression. They stayed in the house for five years. 
 
-*Yes, my mother told me that story uncle*. 
+*Yes, my mother told me that story, uncle*. 
 
 Then he went on and told me two other examples of how my grandmother helped people in distress, as well. 
 
@@ -252,7 +252,6 @@ So she invited him into her kitchen. While he was sitting there eating, she aske
 24:54  
 *And he said, my name is Jesus.*
 
-24:58  
 Now, my grandmother Ask him, and what is your last name? 
 
 *He said, I'm Jesus the Lord*. 
@@ -267,10 +266,8 @@ She said, Where are you going to sleep tonight? It's very cold outside.
 
 She said, Would you like to stay here?
 
-25:31  
 *He stayed seven years*.
 
-25:34  
 After my uncle told me that story, I asked my mother that night, Mother, how come you never told me the story about Jesus? 
 
 *Oh, she said, I thought I had. It was a story like that almost every day about your grandmother.* 
@@ -309,188 +306,394 @@ I was very touched by this story of my uncle telling me how he had been enriched
 ## Other reasons we don't express gratitude
 
 28:30  
-Now I'd like to discuss the reasons that people tell me that they themselves have not expressed gratitude yet that they want to be sure they do express what they think the reasons might have been why gratitude they would have liked to have received, but they didn't. One of the most frequent reasons that people tell me they don't express gratitude is well they think the other person knows that it's not necessary. And that was one of the reasons I saw that kept me from expressing some of the gratitude that I didn't express yet. I tell people, when that's their reason for not expressing it. I tell them that I went to the people that I didn't express my gratitude to, because I assumed that they knew it.
+Now I'd like to discuss the reasons that people tell me that they themselves have not expressed gratitude yet, that they want to be sure they do express. 
 
-29:26  
-And I asked them Did you know? And half of them did and half of them didn't. But even the ones who did still told me they would have liked to have heard it. So since then, when I tell myself, Well, it isn't necessary to express gratitude. They know. And I'm also now quite eager to express the gratitude even if I think they do know it. I still want to have the opportunity to express it directly and have them receive it. 
+What they think the reasons might have been why gratitude they would have liked to have received, but they didn't. 
 
-Another frequent reason why people tell me they don't express the gratitude. They're afraid that it would be embarrassing for the other person, the other person would not know how to take it in very well. And I certainly had that for one of the gratitude that I didn't express to my father. There was something that he had done that I had found greatly enrich my life. And when I asked myself, why didn't I express it? It was for that reason that I guess that it would be not easy for him to take him that gratitude. But I certainly wanted to be sure that he did take it in before, it was no longer possible for me to tell him. 
+#### One of the most frequent reasons that people tell me they don't express gratitude 
 
-So the next time I met with him, we went out for a walk together, which we usually did. And while we're on the walk, I said Dad, I'd like to express a deep gratitude. I For you, and before I went any further, just what I predicted would happen, was starting to take place I could see he got very nervous and said, Oh, don't worry about expressing anything like that, you know, I mean, you're a good son. I said, Dad, I really would like you to hear it. It's a very deep gratitude. And I really want to express it. And I told him what this gratitude was, what he had done and how much it had enrich my life. 
+* they think the other person knows 
+* that it's not necessary. 
 
-I saw it was hard for him to take in. But I could see in his eyes, something happened to him as a result of taking it in. And we continued on our walk silently for about 10 minutes after I express the gratitude. And then he said to me, You know, I've been thinking, I can't remember ever hearing a gratitude from my own parents. And that could I understand from the life that he led as a child why that happened. My grandparents were very loving people, but they were all poor. And just doing the work that was required to survive took everybody's energy. Under those circumstances, it's often not easy for people to get out of their pain long enough to celebrate life and to express gratitude.
+That was one of the reasons I saw that kept me from expressing some of the gratitude that I didn't express yet. 
+
+I tell people, when that's their reason for not expressing it, I tell them that **I went to the people that I didn't express my gratitude to**, because I assumed that they knew it, and **I asked them, Did you know?** 
+
+And **half of them did and half of them didn't**. 
+
+But even the ones who did still told me they would have liked to have heard it. 
+
+So since then, when I tell myself, Well, it isn't necessary to express gratitude, they know. I'm also now quite eager to express the gratitude, even if I think they do know it. I still want to have the opportunity to express it directly and have them receive it. 
+
+**Another frequent reason why people tell me they don't express the gratitude**. They're afraid that it would be embarrassing for the other person, the other person would not know how to take it in very well. 
+
+I certainly had that, for one of the gratitude that I didn't express to my father. There was something that he had done that I found greatly enriched my life. When I asked myself, why didn't I express it? 
+
+It was for that reason that I guess that it would be not easy for him to take him that gratitude. 
+
+But, I certainly wanted to be sure that he did take it in before, it was no longer possible for me to tell him. 
+
+So the next time I met with him, we went out for a walk together, which we usually did. While we're on the walk, I said Dad, I'd like to express a deep gratitude. I for you, and before I went any further, just what I predicted would happen was starting to take place, **I could see he got very nervous and said, Oh, don't worry about expressing anything like that, you know, I mean, you're a good son**. 
+
+I said, Dad, I really would like you to hear it. It's a very deep gratitude. And I really want to express it. I told him what this gratitude was, what he had done and how much it had enriched my life. 
+
+I saw it was hard for him to take in. But I could see in his eyes, something happened to him as a result of taking it in. And we continued on our walk silently for about 10 minutes after I express the gratitude. 
+
+Then he said to me, You know, I've been thinking, I can't remember ever hearing a gratitude from my own parents. 
+
+I could understand from the life that he led as a child why that happened. My grandparents were very loving people, but they were all poor. Just doing the work that was required to survive took everybody's energy. Under those circumstances, it's often not easy for people to get out of their pain long enough to celebrate life and to express gratitude.
+
+## Receiving Gratitude
 
 32:27  
-And I thought how horrible that would be for people to not get gratitude. And over the years since then, I've asked a lot of groups, other anybody in the group that has never received a sincere gratitude is we're learning how to express now. And it's sad to me how many people in the group cannot recall really receiving a sincere gratitude that deeply enrich their lives. They can recall people saying some thank yous to but they couldn't remember ever receiving a gratitude express that clearly communicated, what was alive in the other person when they did what they did for that person and how that person's life was enriched? 
+I thought how horrible that would be for people to not get gratitude. Over the years since then, I've asked a lot of groups, are there anybody in the group that has never received a sincere gratitude, as we're learning how to express now? 
 
-### Recieving Grattitude
+**It's sad to me how many people in the group cannot recall really receiving a sincere gratitude that deeply enrich their lives**. They can recall people saying some thank yous, but they **couldn't remember ever receiving a gratitude expressed**, that clearly communicated, **what was alive in the other person when they did what they did** for that person, and how that person's life was enriched.
 
-How sad that this can go on, and we don't take time in our lives to celebrate, or we don't know how to express it. Or we're afraid that it's going to embarrass people, so we don't express it. Now, it's not only important to express gratitude. It's also very important to receive it well. And I find out this is one of the hardest things for people to do in a way that's consistent with nonviolent communication principles. 
+How sad that this can go on, and we don't take time in our lives to celebrate, or we don't know how to express it. 
 
-Nonviolent communication suggests that we empathically commit with any message it's coming at us that we hear the feelings and needs be expressed by the person. Well, if a person is expressing the gratitude to us, this means to hear the feelings and needs being expressed, to see how our actions enrich the other person's life to connect them perfectly with that. 
+We're afraid that it's going to embarrass people, so we don't express it. 
 
-But for many reasons, I find this is very hard for people to do. As I told you, it was hard for my father to do he had not been in an environment where much gratitude was expressed, he just didn't have much opportunity to know how to deal with credit. And there are several other reasons why I find that it's very hard for many people to take in gratitude empathically just to receive and celebrate how other people's lives have been enriched by what we have done. A lot of people tell me just how difficult it is. is for them to take in the gratitude. 
+#### It's not only important to express gratitude, it's also very important to receive it well. 
 
-#### And I've asked people what makes it so hard? 
+And I find out this is one of the hardest things for people to do in a way that's consistent with nonviolent communication principles. 
 
-There's various reasons why people give me but some of the most popular one. So this some people will say, well, it's my duty to do that, you know, I should I feel good about it or take it in. It's just what I was paid to do or what I'm supposed to do. So just as it's hard for us to express gratitude, if we have this thinking of obligation duty, and that that's why you do things and that's all it's necessary. Just do what's right, because it's your obligation. So that means we often don't express gratitude, thinking it's well, it's the other person's duty and obligation, they shouldn't need any gratitude for it. The same thing goes about receiving gratitude. If we've been educated to think it's our duty, we can't hear easily, how the person's life has been benefited by What we have done? We're not used to that. 
+Nonviolent communication suggests that we empathically commit with any message that's coming at us, that we hear the feelings and needs be expressed by the person. 
 
-Another reason that people tell me that it's very difficult for them to receive gratitude is they think I didn't deserve it. You know, I mean, it was just a little thing. I didn't deserve it. And here again, we see still another aspect of the sad judicial system we've been living under based on this concept of deserve. retributive justice. If you're good boys and girls, you deserve to be rewarded. If you're bad boys and girls, you deserve to suffer. Not only does that justify violence, punishment, that kind of thinking, but it blocks us from being able to take in and celebrate gratitude. Because we have to really wonder, did I deserve it? 
+Well, **if a person is expressing the gratitude to us, this means to hear the feelings and needs being expressed**, to see how our actions enrich the other person's life to connect them perfectly with that. 
 
-A third, commonly expressed reason people tell me They don't receive the gratitude very easily is they say, well, doesn't that mean you're egotistical to take in gratitude and feel good about it? We should be humble.
+But for many reasons, I find this is very hard for people to do. As I told you, it was hard for my father to do he had not been in an environment where much gratitude was expressed, he just didn't have much opportunity to know how to deal with credit. 
+
+There are several other reasons why I find that it's very hard for many people to take in gratitude empathically just to receive and celebrate how other people's lives have been enriched by what we have done. 
+
+### Why it's so difficult to receive gratitude
+
+#### A lot of people tell me just how difficult it is for them to take in the gratitude. 
+
+And I've asked people what makes it so hard? 
+
+There's various reasons why, people give me, but some of the most popular ones, some people will say, well, it's my duty to do that, you know, **why should I feel good about it, or take it in? It's just what I was paid to do or what I'm supposed to do**. 
+
+So just as it's hard for us to express gratitude, if we have this thinking of obligation, duty, and that's why you do things and that's all, it's necessary. Just do what's right, because it's your obligation. 
+
+So that means we often don't express gratitude, thinking it's the other person's duty and obligation, they shouldn't need any gratitude for it. 
+
+The same thing goes about receiving gratitude. If we've been educated to think it's our duty, we can't hear easily, how the person's life has been benefited by what we have done. We're not used to that. 
+
+### Thinking we don't deserve gratitude
+
+Another reason that people tell me that it's very difficult for them to receive gratitude, is they think I didn't deserve it. 
+
+*You know, I mean, it was just a little thing. I didn't deserve it*. 
+
+Here again, we see still another aspect of the sad judicial system we've been living under, based on this concept of deserve. Retributive justice. If you're good boys and girls, you deserve to be rewarded. If you're bad boys and girls, you deserve to suffer. 
+
+Not only does that justify violence, punishment, that kind of thinking, but it blocks us from being able to take in and celebrate gratitude. 
+
+Because we have to really wonder, did I deserve it? 
+
+### Thinking we should be humble
+
+A third, commonly expressed reason people tell me They don't receive the gratitude very easily is they say, 
+
+> Doesn't that mean you're egotistical to take in gratitude and feel good about it? We should be humble.
 
 37:18  
-I warn people about that concept, how to not get it mixed up. Certainly we don't want to think we're greater or better than anybody else. But if we think that to be humble, means to deny and not take in the beauty of what we can do, how sad. And I tell people that have this concept of humility. I tell them about something that Golda Meir, the Israeli Prime Minister, once said to one of her politicians, who was always acting very humbly she said to him one day, don't Be so humble, you're not that great. 
+I warn people about that concept, how to not get it mixed up. Certainly we don't want to think we're greater or better than anybody else. 
 
-By far what I consider the most frequent reason that people don't receive gratitude well, is said very powerfully in the Course in Miracles. When they say it is our light, not our darkness, it scares us the most. When we have been living under a domination culture, where we are rewarded and punished by authorities told to do things out of duty and obligation, it's hard within that structure to really feel that we are created out of divine energy. It's really hard to be conscious that we have this power to enrich life. And it's hard to celebrate that because we have been trained to think in a way so different than that in a way that was designed to get us to be obedience to authority and not designed to help us be conscious of the power we have to enrich life, and how joyful it is to use that power and see it coming into fruition in the gratitude that we receive from other people. 
+#### If we think that to be humble means to deny and not take in the beauty of what we can do, how sad. 
 
-When I was looking at the problem that so many people had receiving gratitude, I wasn't aware of how much trouble I was having with it. And I'd be very grateful that a friend of mine, who is a musician, and had been writing songs that I very much valued and had started to use in my trainings. One day she told me how grateful she was about what she had received from me in the workshops, and how grateful she was that it was now stimulating her to write music. What she found was enjoyed by so many people. So she expressed such a deep gratitude to me. And I was uncomfortable receiving it. I said something like, Oh, I'm glad that you found it helpful. And she could sense that I wasn't really comfortable receiving the gratitude. And she brought this to my attention. 
+I tell people that have this concept of humility. I tell them about something that Golda Meir, the Israeli Prime Minister, once said to one of her politicians, who was always acting very humbly she said to him one day, *don't be so humble, you're not that great*. 
 
-She said, Now, Marshall, I didn't feel like you really receive my gratitude, very empathically now. And I looked inside and I said, Yeah, I can see that I didn't. went on in me when you gave me that gratitude. When I saw how much it had enriched your life. I was starting to, hear some obligations, some demands. Now I had to keep enriching your life. Now that I saw that I had that power. I was feeling like I have to do something with it. I was making a demand that she taught me me how painful that was. Her gratitude hadn't been received empathically and the next day, she came in and had written a song about how painful that was for her. 
+By far what I consider the most frequent reason that people don't receive gratitude well, is said very powerfully in the Course in Miracles. When they say [it is our light, not our darkness, it scares us the most](https://en.wikiquote.org/wiki/Marianne_Williamson#A_Return_to_Love:_Reflections_on_the_Principles_of_%22A_Course_in_Miracles%22_(1992)). 
 
-She went back that night and was still feeling uncomfortable that she had poured out her heart so openly and she could see that I didn't receive it empathically and she wrote the following song. 
+When we have been living under a domination culture, where we are rewarded and punished by authorities told to do things out of duty and obligation, it's hard within that structure to really feel that we are created out of divine energy. 
+
+It's really hard to be conscious that we have this power to enrich life, and it's hard to celebrate that because **we have been trained to think in a way so different than that, in a way that was designed to get us to be obedience to authority and not designed to help us be conscious of the power we have to enrich life**, and how joyful it is to use that power, and see it coming into fruition in the gratitude that we receive from other people. 
+
+#### When I was looking at the problem that so many people had receiving gratitude, I wasn't aware of how much trouble I was having with it. 
+
+I'd be very grateful that a friend of mine, who is a musician, and had been writing songs that I very much valued and had started to use in my trainings. One day she told me how grateful she was about what she had received from me in the workshops, and how grateful she was that it was now stimulating her to write music that she found was enjoyed by so many people. 
+
+**So she expressed such a deep gratitude to me, and I was uncomfortable receiving it**. 
+
+I said something like, *Oh, I'm glad that you found it helpful*. 
+
+And she could sense that I wasn't really comfortable receiving the gratitude. 
+
+She brought this to my attention. She said, Now, Marshall, I didn't feel like you really receive my gratitude very empathically now. 
+
+I looked inside and I said, Yeah, I can see that I didn't. What went on in me when you gave me that gratitude, when I saw how much it had enriched your life, **I was starting to hear some obligations, some demands, now I had to keep enriching your life. Now that I saw that I had that power, I was feeling like I have to do something with it. I was making a demand of it**. 
+
+She told me how painful that was, her gratitude hadn't been received empathically, and the next day, she came in and had written a song about how painful that was for her. 
+
+She went back that night and was still feeling uncomfortable that she had poured out her heart so openly and **she could see that I didn't receive it empathically and she wrote the following song**. 
 
 It really helped me to see how important it was to learn how to receive gratitude empathically
 
+### When I come gently
+
 41:37  
-when I come, gentlemen,
-and I come gently to you.
+When I come gently to you,
 I want you to see
-it's not to get myself from you.
-Just to give you me
+it's not to get myself from you,
+it's just to give you me.
 
-I know you can give me me no matter
-what you do.
-All I ever want from you, is you
-when I come gently to you
-I want you to know
+I know you can't give me me, 
+no matter what you do.
+All I ever want from you, is you.
 
-I come not to trespass your space. 
+When I come gently to you,
+I want you to know,
+I come not to trespass your space, 
 I want to touch and grow.
+
 When your space and my space meet,
 each is not less but more.
-We make our space that was space before.
+We make our space that wasn't space before.
 
-When I come gently to you
-I want you to see
-it's not To get myself from you, 
+When I come gently to you,
+I want you to see,
+it's not to get myself from you, 
 it's just to give you me.
-I know you can give me
-no matter what you do
-all I ever want from you.
+
+I know you can give me, me,
+no matter what you do.
+All I ever want from you, is you.
 
 43:25  
-Two weeks later, we both had an opportunity to continue our learning about how difficult it was both to express gratitude and not have it received well, and why it was so difficult to receive it except now we reverse the roles because two weeks later, I was expressing a deep gratitude to her about how much the music that she brought into our training, how much it enriched my work and my life. And I expressed it pretty deeply and I could see that she couldn't take it in And I could see how badly it felt to really be coming from the heart with a gratitude and not have an empathic reaction to that. And that night, she went home and could really see how hard it was for her to receive gratitude. And this song came to her. And this song is called why is it so hard to believe?
+Two weeks later, we both had an opportunity to continue our learning about how difficult it was, both to express gratitude, and not have it received well, and why it was so difficult to receive it. Except now we reversed the roles because two weeks later, I was expressing a deep gratitude to her, about how much the music that she brought into our training, how much it enriched my work and my life. 
+
+I expressed it pretty deeply and I could see that she couldn't take it in, and I could see how badly it felt to really be coming from the heart with a gratitude and not have an empathic reaction to that. 
+
+That night, she went home and could really see how hard it was for her to receive gratitude, and this song came to her. 
+
+#### This song is called *Why is it so hard to believe?*
 
 44:33  
-Your arms around the
-welcome is complete
-your voice it channels through me
+Your arms are warm around me,
+their welcome is complete.
+Your voice it channels through me
 and the syllables are sweet.
-Your eyes are pure is darkness too compelling to this See?
-Why is it so?
-Really, it's just as much a mockery,
-to touch the truth and be
-able to receive it as to speak, hypocrisy
-to scan before gift of self unable to receive.
+Your eyes are pure as darkness 
+too compelling to deceive.
+
 Why is it so hard to believe?
-Somehow I could see myself through your honest searching. I could accept myself and come to realize that it's not so incredible. That love should come to me.
+It's just as much a mockery,
+to touch the truth and be unable to receive it, 
+as to speak hypocrisy,
+to stand before a gift of self, 
+unable to receive.
+
+Why is it so hard to believe?
+If somehow I could see myself 
+through your honest searching eyes. 
+Perhaps I could accept myself
+and come to realize 
+that it's not so incredible, 
+that love should come to me.
+
 Why is it so hard to believe?
 I know how much I love you
-how much I want to give your trust affirms My love for you.
-That's my loving.
-Give is domination, if I can't also receive
-Why is it so hard
-to believe Billy.
+how much I want to give 
+your trust affirms my love for you,
+and lets my loving live.
+
+To give is domination, if I can't also receive
+Why is it so hard to believe?
+
+## The Gratitude Book
 
 46:44  
-Give them that both giving and receiving gratitude is so important in maintaining our consciousness of the spirituality that is necessary for nonviolent communication to have its power. I think it's very important to look at our lives and see are we creating the space to do it. Because it's not only difficult sometimes to express it when we have the space or to receive it when it's being expressed. But very often, we don't create space in our lives for celebration. 
+Given that both giving and receiving gratitude is so important in maintaining our consciousness of the spirituality that is necessary for nonviolent communication to have its power. 
 
-We get so busy that we don't have the time or space built to do this, and then I think we paid dearly for it because we don't get the juice the energy that we need to live in harmony with compassion. So I've done some things that have been very helpful to me and built some things into my life that helped me to remember to leave space for sincere gratitude and celebration. For example, one of the things that I have learned to do each day which I I'm very grateful for is I keep a book, a gratitude book. And before I go off into the world that day, I like to make some entries into my gratitude book.
+I think it's very important to look at our lives and see, are we creating the space to do it? 
 
-48:15  
+It's not only difficult, sometimes, to express it, when we have the space, or to receive it, when it's being expressed. Very often, we don't create space in our lives for celebration. 
+
+**We get so busy that we don't have the time or space built, to do this, and then I think we pay dearly for it because we don't get the juice, the energy that we need to live in harmony with compassion.** 
+
+I've done some things that have been very helpful to me and built some things into my life that helped me to remember to leave space for sincere gratitude and celebration. 
+
+For example, one of the things that I have learned to do each day, which I'm very grateful for, is I keep a book, a gratitude book.
+
+### Before I go off into the world that day, I like to make some entries into my gratitude book.
+
 Now, what do I put in that book?
 
 48:18  
-I like to think of at least one thing that I have done within the last 24 hours that I want to celebrate. It might be something I did that enrich just my life. Or it might have been something I did that contributed also to someone else's well being. But what I like to do is write down what it takes to help me see those three things that are central to gratitude is expressed in a nonviolent communication way. It is I write down something that helps me be clear. What did I do that I want to celebrate? Second, I write down how am I Feeling at the moment that I'm doing this, how do I feel right now remembering what I had done. And three, I write down what need of mine was fulfilled by my doing that. And then when I have those three things written down, I want to celebrate it, I want to take it in. Because when I can slow down and just take in what I can do, how good it feels to see how I've been rich live, how good it feels to see what need of mine was met by doing that. to slow down long enough to take that in like this, draw a little flower just to give myself the time to celebrate this. 
+#### I like to think of at least one thing that I have done within the last 24 hours that I want to celebrate. 
 
-Now on many days, I may write down more than one thing. I may write down several lambda, but I want to at least think of one because I at least like to start the day by thinking of at least something I've done. It is enrich life and how good it feels to do that. Then I think of something somebody else's done. It is enriched my life in the previous day. And I write down those three things I write down what they did. I write down how I feel about them having done that. And I write down what need of mine was fulfilled by their doing that. And then I draw flour, just to slow me down so I can just let him
+It might be something I did that enriched just my life, or it might have been something I did that contributed also to someone else's well being. 
 
-50:32  
-what they did and how good it felt.
-And then I asked myself this question,
-have I expressed clearly to that person?
-Just how much my life was enriched by that.
+What I like to do is write down what it takes to help me see those three things, that are central to gratitude, as expressed in a nonviolent communication way. 
+
+I write down something that helps me be clear what did I do that I want to celebrate? 
+
+Second, I write down how am I feeling at the moment that I'm doing this, how do I feel right now, remembering what I had done? 
+
+Three, I write down what need of mine was fulfilled by my doing that. Then when I have those three things written down, I want to celebrate it, I want to take it in. 
+
+When I can slow down and just take in what I can do, how good it feels to see how I've enriched life, how good it feels to see what need of mine was met by doing that, to slow down long enough to take that in, I draw a little flower just to give myself the time to celebrate. 
+
+Now on many days, I may write down more than one thing. I may write down several of them, but I want to at least think of one. 
+
+I like to start the day by thinking of at least something I've done that has enriched life and how good it feels to do that. 
+
+#### Then I think of something somebody else has done that has enricheded my life in the previous day. 
+
+I write down those three things:
+* I write down what they did.
+* I write down how I feel about them having done that.
+* And I write down what need of mine was fulfilled by their doing that. 
+
+50:19  
+And then I draw flower, just to slow me down so I can just let in what they did and how good it felt.
+
+And then I asked myself this question, **have I expressed clearly to that person, just how much my life was enriched by that**?
 
 50:47  
-And very often I find that I either didn't, or I expressed it in a lazy nonviolent communication way. Now, here's how you express gratitude and a lazy nonviolent communication way. You say thank you. And sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did. It can sense perhaps how we feel and what need was met. But there are some gratitudes that I want to be sure the person really got clear just how much what they did enrich my life. So then I want to find out from this what kept me from it, and I write down what kept me from it. But then when I haven't done it, this gives me another chance. This makes me aware. And then if I'm going to see them again that day, gives me a chance to express it to them in person. But if I'm already traveled to another place, I can always call them or write them a letter, but I want to be sure that gratitude in my life, gratitude that I have for others is expressed, and I want to make sure that gratitude That others expressed to me is received. 
+And very often I find that I either didn't, or I expressed it in a lazy nonviolent communication way. Now, here's how you express gratitude and a lazy nonviolent communication way. You say thank you, and sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did, and can sense perhaps how we feel and what need was met. 
 
-Now, I also would suggest that we build into our lives not only space to stop and celebrate what we can do, that we feel good about, but that we see how good at Canfield to others sometimes if we share with them our celebration of what we can do if we do it and what I call non sneaky bragging. I use that phrase after working with a friend of mine who was living in a low income culture in San Francisco. And he was a person of color and for various reasons, I asked him to travel with me to the Midwest of the United States to help me and some work I was doing there. And after three days, and what was for him quite a different culture, I was curious about what it was was like for him. And I asked him, I said, Hey, what's it like being in this culture with all these white people and post them college professors? And what's it like? And he said, it's okay man. But what really drives me nuts to tell you the truth is the sneaky bragging. And I asked what he meant by sneaky bragging. And he said, Well, like at the lunch table today. He heard this woman talk for 20 minutes giving us all this facts about how she and I had gotten a research proposal funded and she was talking as long as it was just interesting facts that she was given. It was obvious she was trying to celebrate that she got something she worked hard for. Why couldn't she just come out and say how good she felt about what she did. And when he told me that it just really struck me about the difference in cultures because when I was up at his place where I stayed when I was working at that Time in his region. I noticed how when his friends came in the house, they didn't do sneaky bragging, they came right out and celebrated something they had done that day. And how they made clear how they felt about it and what needs of theirs were met. They did it in their own cultural style. And I thought, yeah, how wonderful that was that people could do that. And I also thought at that moment about a book I had read recently about research done on why conversations are boring and middle class culture. And it was for this reason that when people really want to celebrate something they've done. They think it might sound egotistical or self centered, to be open and honest about how good they feel about something they've done. So they bury it behind a bunch of words that talk about the situation, but don't really indicate how good it feels to them to have done what they did. They don't make clear what needs of theirs were met by doing I was thinking of this on my way to my next training, which I was going to do at a prison. And this was a prison I'd worked at before. And when I came in, the director of the prison said, you're going to have your hands full with a group you're working with today. There's been lots of tension on the ward even more than usual. Well, there usually was a lot of tension. So I thought it's probably going to be something today. And then as I got into room, I was with about 20 prisoners and about six guards. I could see in their faces, they were all upset and just ready to get at each other. And I said to them,
+There are some gratitudes that I want to be sure the person really got clear just how much what they did enriched my life. 
 
-55:43  
-before we start the workshop today, I know we got lots of tension to deal with. But I've been thinking on the way here's something a friend told me yesterday about what he called sneaky bragging and how people are reluctant to express something they've done that they feel good About so before we get into all the heavy stuff today, let's go around. And I'd like each of you to tell me one thing you've done recently that you feel good about. Tell me what you did and how you feel about doing it and what need was met. This will give us some chance to practice what we worked on and other sessions, how to express feelings and needs only this will give us a chance to try it out with something we've done that we feel good about because it met a need of ours. And then we'll get into the heavy stuff I said. So I suggested we start on my left and they're sitting on my left was a gentleman who was a prisoner and who the previous three sessions that we had had hadn't said one word, he just stared at me. So anyway, I said, So would you be willing to start now for the first time he said something, and it was obvious that he had been listening in previous sessions because he made a clear observation express the feeling, he said, pointing at one of the guards across the room. room when you came in my room today to wake me up to go to work, and I didn't cuss you out like I usually do. I feel good that I didn't do that. Well, he did express and clear observation. And he did say he felt good, but he didn't connect it to his needs. And I wondered, well, should I just leave well enough alone, but anyway, I said to him, and what about the need, he said, I know he wakes me up because he wants me to develop good work habits. So just because I don't like getting up in the morning, I don't want to take it out on him. And I like that way of expressing his self gratitude. And by the time we got to two more people, there was a whole different energy in the group, just to start by people celebrating something they've done that met their needs and that they felt good about. And then when we got into the conflicts, we were able to deal with them with a whole different energy. Now it's not only important to do this kind of celebration by myself, I also want to do it with the people that I'm the closest with. Because even there, it's very easy to get so caught up in so many things that we don't just stop and celebrate. For example, and many of the families that I work with, they'll stop before eating a meal to say grace and give thanks for the food. But I asked him Do you do the same to stop and give thanks for what people in the family have done that is enriching your life. And sadly most of them tell me know. So I have been recommending to families that I work with, to consider the option of taking some time every day, not out of duty obligation have to but out of the desire to celebrate to celebrate how you can enrich one another's lives. My wife and I take time every morning before we go off into the world. This opportunity to stop and express openly what the other has done that has enriched our life to tell them as best we can, how it enriched our lives.
+Then I want to find out from this what kept me from it, and I write down what kept me from it. But then when I haven't done it, this gives me another chance. 
+
+This makes me aware. Then, if I'm going to see them again that day, gives me a chance to express it to them in person. 
+
+If I'm already traveled to another place, I can always call them or write them a letter, but **I want to be sure that** gratitude in my life, **gratitude that I have for others is expressed, and** I want to make sure **that gratitude others expressed to me is received**. 
+
+## Non-sneaky bragging
+
+Now, I also would suggest that we build into our lives, not only space to stop and celebrate what we can do, that we feel good about. But that we see how good it can feel to others sometimes, **if we share with them our celebration** of what we can do, if we do it **in what I call non sneaky bragging**. 
+
+I use that phrase after working with a friend of mine who was living in a low income culture in San Francisco. He was a person of color, and for various reasons, I asked him to travel with me to the Midwest of the United States to help me in some work I was doing there. 
+
+After three days, in what was for him quite a different culture, I was curious about what it was was like for him. 
+
+And I asked him, I said, Hey, what's it like being in this culture with all these white people and most of them college professors?
+
+And he said, *it's okay man, but what really drives me nuts, to tell you the truth, is the sneaky bragging*. 
+
+I asked what he meant by sneaky bragging. 
+
+He said, well, like at the lunch table today. He heard this woman talk for 20 minutes giving us all these facts about how she had gotten a research proposal funded and she was talking as though it was just interesting facts that she was giving. 
+
+It was obvious she was trying to celebrate that she got something she worked hard for. **Why couldn't she just come out and say how good she felt about what she did?** 
+
+When he told me that, it just really struck me about the difference in cultures, because when I was up at his place, where I stayed, when I was working at that time in his region. **I noticed how when his friends came in the house, they didn't do sneaky bragging, they came right out and celebrated** something they had done that day, and how **they made clear how they felt** about it and **what needs of theirs were met**. They did it in their own cultural style. 
+
+I thought, how wonderful that was that people could do that. I also thought at that moment about a book I had read recently about research done on why conversations are boring in middle class culture. It was for this reason that when people really want to celebrate something they've done, they think it might sound egotistical or self centered, to be open and honest about how good they feel about something they've done, so they bury it behind a bunch of words that talk about the situation, but don't really indicate how good it feels to them to have done what they did. They don't make clear what needs of theirs were met by doing it. 
+
+#### I was thinking of this on my way to my next training, which I was going to do at a prison. 
+
+This was a prison I'd worked at before, and when I came in, the director of the prison said, you're going to have your hands full with the group you're working with today. There's been lots of tension on the ward, even more than usual. 
+
+Well, there usually was a lot of tension. So I thought it's probably going to be something today. Then as I got into room, I was with about 20 prisoners and about six guards. I could see in their faces, they were all upset and just ready to get at each other. 
+
+55:40  
+I said to them, before we start the workshop today, I know we got lots of tension to deal with. But I've been thinking on the way here's something a friend told me yesterday about what he called sneaky bragging and how people are reluctant to express something they've done that they feel good about. 
+
+#### So before we get into all the heavy stuff today, let's go around, and I'd like each of you to tell me one thing you've done recently that you feel good about. 
+
+Tell me what you did and how you feel about doing it and what need was met. This will give us some chance to practice what we worked on in other sessions, how to express feelings and needs only this will give us a chance to try it out with something we've done that we feel good about, because it met a need of ours, and then we'll get into the heavy stuff I said. 
+
+So I suggested we start on my left. There sitting on my left was a gentleman who was a prisoner, and who the previous three sessions that we had, had hadn't said one word, he just stared at me. 
+
+So anyway, I said, So would you be willing to start? Now for the first time he said something, and it was obvious that he had been listening in previous sessions, because he made a clear observation to express the feeling, he said, pointing at one of the guards across the room, **when you came in my room today to wake me up to go to work, and I didn't cuss you out like I usually do. I feel good that I didn't do that**. 
+
+Well, he did express and clear observation. And he did say he felt good, but he didn't connect it to his needs. 
+
+I wondered, well, should I just leave well enough alone, but anyway, I said to him, and what about the need? 
+
+He said, I know he wakes me up because he wants me to develop good work habits. So just because I don't like getting up in the morning, I don't want to take it out on him. 
+
+I like that way of expressing his self gratitude. By the time we got to two more people, there was a whole different energy in the group, just to start by people celebrating something they've done that met their needs and that they felt good about. 
+
+Then when we got into the conflicts, we were able to deal with them with a whole different energy. **Now it's not only important to do this kind of celebration by myself, I also want to do it with the people that I'm the closest with**. Because even there, it's very easy to get so caught up in so many things that we don't just stop and celebrate. 
+
+For example, in many of the families that I work with, they'll stop before eating a meal to say grace and give thanks for the food. 
+
+I asked them, Do you do the same to stop and give thanks for what people in the family have done that is enriching your life? 
+
+Sadly most of them tell me no. So I have been recommending to families that I work with, to consider the option of taking some time every day, not out of duty obligation have to but out of the desire to celebrate to celebrate how you can enrich one another's lives. 
+
+My wife and I take time every morning before we go off into the world. This opportunity to stop and express openly what the other has done that has enriched our life to tell them as best we can, how it enriched our lives.
 
 59:12  
-What a wonderful way to start the day.
+#### What a wonderful way to start the day.
 
 59:17  
-And I tell people to look at their work setting, are they expressing gratitude and receiving gratitude in their workplace. And in many of the places that I work, they just can't even imagine it. For example, I was working in a big business in Madison, Wisconsin. And after three days of showing them how nonviolent communication could help them in dealing with all the conflicts they were having within departments and between departments.
+And I tell people to look at their work setting, are they expressing gratitude and receiving gratitude in their workplace. 
 
-59:51  
-Toward the end, we did a little session on gratitude
+In many of the places that I work, they just can't even imagine it. For example, I was working in a big business in Madison, Wisconsin. 
 
-59:56  
-and after showing them how to express and receive gratitude and anonymous Violent communication way. I asked him, Do you take time anytime in your meetings to express gratitude? And they kind of couple of the people kind of laughed, because even the thought of doing that seems strange to them. And the director of the program said to me, Marshall, we've got so many things to deal with each week in our meetings, that it's hard for us to figure out what to put in the agenda. So we don't have time, you know, to stop and express gratitude. I went back a month later, to that company. And before the day began, I was sitting in the director's office. And I asked him, I said, How are things going has the training helped in dealing with the conflicts that you were having? And he thought for a moment and said, Oh, yeah, yeah, Marshall. The trainings really helped in dealing with those conflicts. But to tell you the Mashallah, you know what really helped the most? Do you remember you suggested that we take some time out of every meeting and express gratitude? I said, Yes, I remember very clearly that I suggested that and you didn't seem too happy with that idea. He said, No, I wasn't, I really saw so much it had to get done. But an associate of mine, he really liked the idea. And he kept bugging me. The next three days, he would say, hey, why not bad? Why not that, you know, we can make time for it. So I finally said, Okay, okay. And we took 10 minutes at the beginning of our meeting, just to give people a chance to express gratitude. Before we got into all of the hard stuff. He said, Now, Marshall, we're up to 20 minutes. We found that when we take that much time to stop and slow down and celebrate what's being done, how it's enriching our lives, We find that even then when we get into the hard stuff, it is so much more productive. So while we're on this subject of gratitude, I would like to express my deep gratitude that you have taken this time to hear what I've had to offer. I've been offering you that which is very precious in my life, and it's quite a gift that you have given me Your presence to receive this.
+After three days of showing them how nonviolent communication could help them in dealing with all the conflicts they were having within departments and between departments, toward the end, we did a little session on gratitude.
+
+After showing them how to express and receive gratitude in a Nonviolent communication way. 
+
+60:00  
+I asked him, do you take time anytime in your meetings to express gratitude? 
+
+A couple of the people kind of laughed, because even the thought of doing that seems strange to them. 
+
+The director of the program said to me, Marshall, we've got so many things to deal with each week in our meetings, that it's hard for us to figure out what to put in the agenda. We don't have time, you know, to stop and express gratitude. 
+
+I went back a month later, to that company. Before the day began, I was sitting in the director's office. And I asked him, I said, How are things going? Has the training helped in dealing with the conflicts that you were having? H
+
+e thought for a moment and said, Oh, yeah, yeah, Marshall. The trainings really helped in dealing with those conflicts. But to tell you the truth, **you know what really helped the most? Do you remember you suggested that we take some time out of every meeting and express gratitude**? 
+
+I said, Yes, I remember very clearly that I suggested that, and you didn't seem too happy with that idea. 
+
+He said, No, I wasn't, I really saw so much that had to get done. An associate of mine, he really liked the idea. He kept bugging me. The next three days, he would say, hey, why not? We can make time for it. 
+
+So I finally said, Okay, okay. And we took 10 minutes at the beginning of our meeting, just to give people a chance to express gratitude, before we got into all of the hard stuff. 
+
+He said, now, Marshall, we're up to 20 minutes. We found that **when we take that much time to stop and slow down and celebrate what's being done, how it's enriching our lives, we find that even then when we get into the hard stuff, it is so much more productive**. 
+
+So while we're on this subject of gratitude, I would like to express my deep gratitude that you have taken this time to hear what I've had to offer. 
+
+I've been offering you that which is very precious in my life, and it's quite a gift that you have given me your presence to receive this.
 
 1:02:33  
-And I hope that these
+And I hope that these sessions have strengthened your awareness of the preciousness of connection. It is possible for us at any time with any person. A precious connection that I like, is described beautifully for me in the following song 
 
-1:02:35  
-sessions
+#### and the song is Revelation
 
-1:02:38  
-have strengthened your awareness of the preciousness of connection. It is possible for us at any time with any person. A precious connection that I like, is described beautifully for me in the following song and the song is revelation
+> I stand with you in wonder, 
+> and somewhere from the past
+> a phrase that tells about a burning bush 
+> comes flashing through my mind.
+> 
+> Smile if I should call you
+> a flaming revelation.
+> And yet that you reveal to me 
+> your feelings and needs honestly 
+> is giving of a shining sacred kind
+> 
+> still before your gift of self
+> for the presence you present
+> heae the ancient image speak, 
+> stand on holy ground.
+> 
+> Remembering that barefoot 
+> is appropriate for such a place
+> I laugh with joy to cast aside 
+> the heavy shoes that hold them high
+> and suddenly I dance with newfound grace
+> 
+> You have given to me, 
+> so I expose the depths of self to you.
+> Somehow we are one in love
+> Yet both of us are free
+> Touch is not to hold, 
+> to burn with life is not to be consumed
+> reverence the mystery of human personality 
+> is to encounter word made flesh in me
 
-1:03:03  
-I stand with you.
-
-1:03:08  
-Somewhere from the past of phrase that tells about a burning bush comes flashing through my mind.
-
-1:03:20  
-Smile if I should call you
-
-1:03:24  
-flaming revelation.
-
-1:03:27  
-And yet that you reveal to me your feelings and needs honestly is giving of a shining sacred
-
-1:03:44  
-still before your gift of cell
-
-1:03:49  
-for the presence you present
-
-1:03:53  
-here the ancient image speak, stand on holy ground.
-
-1:04:00  
-Remembering that barefoot is appropriate for such a place. I laugh with joy to cast aside the heavy shoes that hold them high
-
-1:04:16  
-and suddenly I dance with newfound grace
-
-1:04:24  
-you
-
-1:04:25  
-have given to me. So I expose the depths of self to you.
-
-1:04:32  
-Somehow we are one in love. Yet both of us are free. Touch is not to hold, to burn with life is not to be consumed. reverence the mystery of human personality is to encounter Word made flesh
+---
 
 1:05:15  
-This concludes the nonviolent communication training course with Marshall Rosenberg. Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web@www.cnbc.org. If you would like to order additional copies of this audio Learning Series, or to receive a complete catalogue of wisdom teachings for the inner life, please contact sounds true. www dot sounds true calm or call sounds true. 1-800-333-9185 four break the sound street catalogue. p o box 8010 Boulder, Colorado 306 Thank you for listening
+This concludes the nonviolent communication training course with Marshall Rosenberg. Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web @ www.cnbc.org. 
 
-Transcribed by https://otter.ai
+If you would like to order additional copies of this audio learning series, or to receive a complete catalogue of wisdom teachings for the inner life, please contact [Sounds True](https://www.soundstrue.com/store/).
