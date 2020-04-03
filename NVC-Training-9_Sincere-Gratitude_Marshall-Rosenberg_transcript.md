@@ -11,7 +11,13 @@
 
 * [Introduction](#introduction)
 * [Expressing Gratitude](#expressing-gratitude)
-
+* [Exercises in Gratitude](#exercises-in-gratitude)
+* [What keeps us from expressing gratitude?](#what-keeps-us-from-expressing-gratitude)
+* [Confirmation that we are serving life](#confirmation-that-we-are-serving-life)
+* [What else keeps us from expressing gratitude](#what-else-keeps-us-from-expressing-gratitude)
+* [What Gratitude haven't I expressed yet?](#what-gratitude-havent-i-expressed-yet)
+* [Marshall's Uncle who took care of Grandmother](#marshalls-uncle-who-took-care-of-grandmother)
+* [Other reasons we don't express gratitude?](#other-reasons-we-dont-express-gratitude)
 
 ## Introduction
 
@@ -77,6 +83,8 @@ Now, it's extremely important that we build into our lives, opportunities to exc
 
 We'll see in this session that there's many things that happen to block the exchange of sincere gratitude. 
 
+## Exercises in Gratitude
+
 In my trainings, I do some exercises that not only show people how to express gratitude, but make us highly aware of what are these forces in our lives that keep the flow of sincere gratitude from happening. 
 
 One of these exercises, **I ask people to think of a gratitude they would have loved to have received from somebody but they didn't**. 
@@ -85,75 +93,189 @@ Then we use that as a chance to practice what it would have sounded like if that
 
 That is, what would they have said, to *make clear what we did*, and *how they felt as a result* of our doing this, and *what was needed that was met*. 
 
-After the people have written down what the gratitude would have sounded like had it been expressed in a nonviolent communication way, by the other person.
+After the people have written down what the gratitude would have sounded like, had it been expressed in a nonviolent communication way, by the other person.
 
 8:37  
-I asked them to use some imagination to imagine going to that person and doing the following. This might require a bit of imagination on your part, particularly if the other person is no longer alive. I say, whether the person is alive or not, imagine going to that person and telling them that you were in a workshop that asked you to write down a gratitude that you would have loved to have received and didn't. You tell this person, the gratitude that you would have liked to have received and didn't you read it for them so they can hear word for word, what would have sounded so precious for you to have heard. 
+I asked them to imagine going to that person and doing the following. This might require a bit of imagination on your part, particularly if the other person is no longer alive. I say, whether the person is alive or not, **imagine going to that person and telling them that you were in a workshop that asked you to write down a gratitude that you would have loved to have received and didn't**. 
 
-Then, I say, after you imagine saying that to the person, then ask them this question, What kept you from expressing it? Then imagine what their reaction might be to that question of what kept them from expressing it. I do this exercise because I want us all to be highly aware both of the importance of keeping gratitude a central part of our lives. To do that we need to be conscious of the many things that go on, that keep gratitude from being expressed when it is desperately needed to maintain our energy for living a life of compassion. 
+You tell this person, the gratitude that you would have liked to have received and didn't. 
 
-Then when people have had a chance to do those two things, I asked him to read off both what the gratitude would have sounded like Had it been expressed in a nonviolent communication manner. And we look at the reasons why people believe they didn't receive the gratitude. Then I asked the people to think of a gratitude they themselves have not expressed that they would really feel horrible if they didn't get a chance to express it to the other person before that person died. I ask them to write down the gratitude in a way that communicates the three things we're trying to create. Indicate when we express gratitude in a nonviolent communication way, say make it clear to the other person what they did that enriched your life. How you feel right now, when you think about that, and what need of yours was fulfilled. 
+You read it for them so they can hear word for word, what would have sounded so precious for you to have heard. 
 
-After they have a chance to practice expressing the gratitude in this way, I say to them, what has kept you from expressing this gratitude? If it has meant so much in your life, that you would hate this person to die without having heard it? What is kept you from expressing it till this point? And they write down that answer. And so then we look as a group on what are the forces that go on within us and that we think go on within others that keep us from having an open flow of gratitude. Now, some People unfortunately, think that gratitude is un-necessary. They think there's just certain things you should do. It's your obligation and duty, and that you shouldn't have to have any gratitude for doing, you should just do it. 
+Then, after you imagine saying that to the person, then ask them this question. What kept you from expressing it? Then imagine what their reaction might be to that question of what kept them from expressing it. 
 
-I feel very sad at how many people seem to have that feeling and how many people work in workplaces where gratitude isn't really expressed, where people are expected to do certain things, and they feel obligated to do it. There's no space in that kind of thinking for sincere gratitude to be part of the workplace or the living environment. Many people not only think it's not necessary to say it, they don't see any reason why they should have to hear it. If they know that it is their obligation. Why bother to have to hear and gratitude, you just do the work because you know, it is your obligation or duty. 
+#### I do this exercise because I want us all to be highly aware both of the importance of keeping gratitude a central part of our lives. 
 
-To get people out of this framework, I've been telling a story for years. This funny story, jolts a lot of people out of this idea that we don't need gratitude. It's just if we do things out of the proper energy, that should be enough, why bother to get any gratitude? And then especially when I tell them, we don't want to use gratitude as a reward, then they say, Why get it at all? If you do something, and you know you did it for the right reasons to contribute to people's lives. Why do we need the gratitude?
+To do that we need to be conscious of the many things that go on, that keep gratitude from being expressed when it is desperately needed to maintain our energy for living a life of compassion. 
 
-13:45  
-And I tried to point out to them that our intention to enrich life isn't enough. We do need confirmation that our intention has been fulfilled. The story that I tell them, to jolt them out of thinking that it's only important that our intention be to give and we don't have a need for any confirmation. I tell them the story about two motorcyclists who are out on their motorcycles on a chilly day. It's so chilly, they get off of their motorbikes. And they put their black leather jackets on backwards. So the color of the jacket protects their neck. They get back on the motorcycles and take off again and in a short time have a tragic accident. They hit a patch of ice. When the ambulance driver arrives on the scene, the ambulance driver sees a good samaritan standing over them. And the ambulance driver says to the Good Samaritan, what happened to them. And the Good Samaritan said, I'm not too sure. They seem to be doing all right until I straightened their neck. 
+Then when people have had a chance to do those two things, I asked them to read off both what the gratitude would have sounded like, had it been expressed in a nonviolent communication manner. And we look at the reasons why people believe they didn't receive the gratitude. 
 
-I'm pleased that how many people get the point. It's not enough that our intention is to enrich life. We need confirmation. Because very often it may be our intention to enrich people's lives but what were doing can have the exact opposite effect. So, gratitude, when sincerely expressed is very important. Need to confirm that our intention to enrich life has been fulfilled. It's further important because when we get that confirmation, we feel a joyful feeling, a natural joyful feeling that comes when we see that the power we have can enrich life. It has been my experience that there is nothing more fulfilling for human beings than when they exercise this power to enrich life and get confirmation that they have done so they can really experience how their efforts have enriched other people's lives. 
+**Then I asked the people to think of a gratitude they themselves have not expressed** that they would really feel horrible if they didn't get a chance to express it to the other person before that person died. 
 
-The more we carry that energy within us that comes when we receive this confirmation, the easier it is to continue to relate in a compassionate way, with other people even under difficult conditions. Because what can feel better than using this power we have to enrich life in the service of life and seeing how our efforts have made life more wonderful for people. But given its importance in power, and it's all the more important that we look at what is keeping us from doing. 
+I ask them to write down the gratitude in a way that communicates the three things we're trying to create. 
 
-##### So what are some of the things that people have told me keep them from expressing the gratitude that they have but haven't expressed? 
+**When we express gratitude in a nonviolent communication way**:
+* make it clear to the other person what they did that enriched your life
+* how you feel right now, when you think about that
+* and what need of yours was fulfilled. 
 
-What do they believe has kept other people from expressing gratitude to them that they would have liked to have received. I started trying to clarify what were the forces that were keeping so many people from expressing gratitude. 
+## What keeps us from expressing gratitude?
 
-I got a real good started this reading a passage of a book by john paul called the secret of staying in love. In this passage in the book, john paul was mourning deeply that he had not expressed a lot of gratitude that he felt toward his father. And he had never expressed this gratitude while the father was alive. It was very sad for him to see just how much his life had been enriched by the Father. And yet he hadn't expressed his gratitude and he got in touch with what kept him from doing it.
+After they have a chance to practice expressing the gratitude in this way, I say to them, 
+
+#### What has kept you from expressing this gratitude, if it has meant so much in your life, that you would hate this person to die without having heard it? 
+
+What has kept you from expressing it till this point? 
+
+And then write down that answer. 
+
+Then we look as a group on what are the forces that go on within us and that we think go on within others that keep us from having an open flow of gratitude. 
+
+### Some people unfortunately, think that gratitude is un-necessary. 
+
+They think there's just certain things you should do. It's your obligation and duty, and that you shouldn't have to get any gratitude for doing, you should just do it. 
+
+I feel very sad at how many people seem to have that feeling, and how many people work in workplaces where gratitude isn't really expressed, where people are expected to do certain things, and they feel obligated to do it. 
+
+There's no space in that kind of thinking for sincere gratitude to be part of the workplace or the living environment. Many people not only think it's not necessary to say it, they don't see any reason why they should have to hear it. 
+
+If they know that it is their obligation, why bother to have to hear any gratitude, you just do the work because, you know, it is your obligation or duty. 
+
+## Confirmation that we are serving life
+
+To get people out of this framework, I've been telling a story for years. This funny story, jolts a lot of people out of this idea that we don't need gratitude. It's just if we do things out of the proper energy, that should be enough, why bother to get any gratitude? 
+
+Then especially when I tell them, we don't want to use gratitude as a reward, then they say, Why get it at all? If you do something, and you know you did it for the right reasons to contribute to people's lives. Why do we need the gratitude?
+
+13:45
+
+#### I tried to point out to them that our intention to enrich life isn't enough. We do need confirmation that our intention has been fulfilled. 
+
+The story that I tell them, to jolt them out of thinking that it's only important that our intention be to give and we don't have a need for any confirmation. 
+
+I tell them the story about two motorcyclists who are out on their motorcycles on a chilly day. It's so chilly, they get off of their motorbikes. They put their black leather jackets on backwards, so the color of the jacket protects their neck. They get back on the motorcycles and take off again and in a short time have a tragic accident. They hit a patch of ice. 
+
+When the ambulance driver arrives on the scene, the ambulance driver sees a good samaritan standing over them. And the ambulance driver says to the Good Samaritan, what happened to them? And the Good Samaritan said, I'm not too sure. They seem to be doing all right until I straightened their neck. 
+
+I'm pleased that how many people get the point. It's not enough that our intention is to enrich life. We need confirmation. Because very often it may be our intention to enrich people's lives but what were doing can have the exact opposite effect. 
+
+So, gratitude, when sincerely expressed is very important. We need to confirm that our intention to enrich life has been fulfilled. It's further important because when we get that confirmation, we feel a joyful feeling, a natural joyful feeling that comes when we see that the power we have can enrich life. 
+
+It has been my experience that there is nothing more fulfilling for human beings than when they exercise this power to enrich life and get confirmation that they have done so they can really experience how their efforts have enriched other people's lives. 
+
+The more we carry that energy within us, that comes when we receive this confirmation, the easier it is to continue to relate in a compassionate way with other people, even under difficult conditions. 
+
+What can feel better than using this power we have to enrich life, in the service of life, and seeing how our efforts have made life more wonderful for people? 
+
+## What else keeps us from expressing gratitude?
+
+Given its importance and power, it's all the more important that we look at what is keeping us from doing it. 
+
+#### So what are some of the things that people have told me keep them from expressing the gratitude that they have but haven't expressed? 
+
+What do they believe has kept other people from expressing gratitude to them that they would have liked to have received? I started trying to clarify what were the forces that were keeping so many people from expressing gratitude. 
+
+I got a real good start at this reading a passage of a book by John Powell called [The Secret of Staying in Love](https://www.goodreads.com/work/quotes/2912048-the-secret-of-staying-in-love). In this passage in the book, John Powell was mourning deeply that he had not expressed a lot of gratitude that he felt toward his father. 
+
+He had never expressed this gratitude while the father was alive. It was very sad for him to see just how much his life had been enriched by the Father. And yet he hadn't expressed his gratitude and he got in touch with what kept him from doing it.
 
 17:59  
-What kept came from expressing the gratitude is while the father was alive, he had so much anger toward the father, that he didn't get in touch with the gratitude that he also felt. And this is so for most of us, when we're in a lot of pain, and we don't know how to deal with the pain, we get stuck in the pain. And even though things are enriching our lives, it's hard for us to put our focus on that and to celebrate that and to express gratitude. 
+**What kept him from expressing the gratitude is while the father was alive, he had so much anger toward the father, that he didn't get in touch with the gratitude that he also felt**. 
 
-Our ability to express gratitude well, is highly correlated with how well we're able to express our pain, and receive empathy for our pain, and transform the pain. The better we're able to do that, the more access we will have to celebrating that in life which is enriching life. But if we are blocked and knowing how to express ourselves, So that we can get an empathic reception of what's bothering us. We get stuck and don't have the energy or the consciousness or both, to really express sincere gratitude. 
+This is so for most of us, when we're in a lot of pain, and we don't know how to deal with the pain, we get stuck in the pain. 
 
-Having read what john paul wrote about his sadness, at not having expressed this gratitude he felt toward his father. I wondered, oh my goodness, what gratitude might I have within me that I haven't expressed yet that I would hate not to express? Immediately, about 12 things came to me 12 things that other people had done in my life that had enrich my life very deeply. And I hadn't express the gratitude yet. I wanted to avoid the sadness that John Paul experienced when he realized that he hadn't expressed this gratitude to his father. 
+Even though things are enriching our lives, it's hard for us to put our focus on that and to celebrate that and to express gratitude. 
 
-I wanted to make sure that this gratitude that I was feeling but hadn't expressed, I would hate them think that the other person would die before they could really know how their actions had enriched my life. And I wanted to find out what kept me from doing so for each item of gratitude that I hadn't yet expressed. I asked myself the question, what kept me up until this point, from expressing that I then took steps to make sure that as soon as possible, I would get to these people. So I would have a chance to express the gratitude in person. 
+**Our ability to express gratitude well, is highly correlated with how well we're able to express our pain, and receive empathy for our pain, and transform the pain**. 
 
-One of the gratitude that I realized I hadn't expressed yet, I made reference to in an earlier session. I mentioned how it enrich my life to see my uncle came to my house each day and help my mother take care of my grandmother who was totally paralyzed. And I mentioned in this previous session, how much that meant to me to see that there was this quality in human beings that they enjoyed contributing to one another's well being, how much I needed to see that and experience that at a time in my life when there was so much violence going on around me.
+The better we're able to do that, the more access we will have to celebrating that in life which is enriching life. 
 
-When I went to the uncle the next time, I had an opportunity, because I wanted him to know, and I realized I had never told him what a profound effect that gratitude it had on my life. How I kept thinking about it over the years, how it was never far from me, how much it meant my need to remember that we human beings were meant to contribute to each other's well being. Not to get caught up in all the violence. And I expressed that to him. I'm pleased that I made it pretty clear. I didn't know that that smile had enrich my life in such a profound way. And I could see in his eyes that he received the gratitude, I could see how it was enriching him. 
+> If we are blocked in knowing how to express ourselves, so that we can get an empathic reception of what's bothering us, we get stuck and don't have the energy or the consciousness or both, to really express sincere gratitude. 
 
-I also asked him, I said, uncle, how did you learn to do that? How did you learn to stay compassionate? I understand that you had a rough upbringing that you went through a lot of trauma in your life. How have you managed to stay compassionate so well?
+## What gratitude haven't I expressed yet?
+
+Having read what John Powell wrote about his sadness, at not having expressed this gratitude he felt toward his father, **I wondered, oh my goodness, what gratitude might I have within me that I haven't expressed yet that I would hate not to express**? 
+
+*Immediately, about 12 things came to me, 12 things that other people had done in my life that had enrich my life very deeply, and I hadn't expressed the gratitude yet*. 
+
+#### I wanted to avoid the sadness that John Powell experienced when he realized that he hadn't expressed this gratitude to his father. 
+
+I wanted to make sure that this gratitude that I was feeling but hadn't expressed, I would hate to think that the other person would die before they could really know how their actions had enriched my life. 
+
+I wanted to find out what kept me from doing so, for each item of gratitude that I hadn't yet expressed. I asked myself the question, what kept me, up until this point, from expressing that. I then took steps to make sure that as soon as possible, I would get to these people, so I would have a chance to express the gratitude in person. 
+
+## Marshall's Uncle who took care of Grandmother
+
+One of the gratitude that I realized I hadn't expressed yet, I made reference to in an earlier session. I mentioned how it enriched my life to see my uncle come to my house each day and help my mother take care of my grandmother, who was totally paralyzed. 
+
+I mentioned in this previous session, how much that meant to me, to see that there was this quality in human beings that they enjoyed contributing to one another's well being, how much I needed to see that and experience that at a time in my life when there was so much violence going on around me.
+
+**When I went to the uncle the next time, I had an opportunity, because I wanted him to know, and I realized I had never told him what a profound effect that gratitude had on my life**. 
+
+How I kept thinking about it over the years, how it was never far from me, how much it meant my need to remember that we human beings were meant to contribute to each other's well being, not to get caught up in all the violence. 
+
+And I expressed that to him, I'm pleased that I made it pretty clear. **I let him know that smile enriched my life in such a profound way. And I could see in his eyes that he received the gratitude, I could see how it was enriching him**. 
+
+I also asked him, I said, uncle, how did you learn to do that? How did you learn to stay compassionate? I understand that you had a rough upbringing that you went through a lot of trauma in your life. 
+
+#### How have you managed to stay compassionate so well?
 
 22:40  
-And he liked the question, and he thought for a while and he said, Well, you know, I was very fortunate to have good teachers. I also happen to be around people who I saw, enjoyed contributing to other people's well being, it was easy to learn from them. 
+And he liked the question, and he thought for a while and he said, Well, you know, I was very fortunate to have good teachers. **I also happened to be around people who, I saw, enjoyed contributing to other people's well being. It was easy to learn from them**. 
 
-I said, Could you give me an example? Who one of these people were? 
+I said, Could you give me an example who one of these people were? 
 
-He said, you know, the best teacher of all I had, it was your grandmother. Of course, when you lived with her, she was very ill. But when she wasn't ill, oh, how wonderful it was to be around her, and to see how she contributed to people's well being and how much joy she felt in that, and how much people received from that and how much they enjoyed her presence. So I learned so much from her. 
+He said, you know, the best teacher of all I had, it was your grandmother. Of course, when you lived with her, she was very ill. 
 
-And I said, Could you give me an example of one of the things that she did that had great power for you and helping you remember the joy that we feel in contributing to people's well being? 
+When she wasn't ill, oh, how wonderful it was to be around her, and to see how she contributed to people's well being, and how much joy she felt in that, and how much people received from that and how much they enjoyed her presence. I learned so much from her. 
 
-He said, Well, there's so many things she did. It's hard to pick one out. He said, Well, as your mother told you about the time that she brought Taylor and his wife and two children into the house when they lost their house during the depression. They stayed in the house for five years. Yes, my mother told me that story uncle. And then he went on and told me two other examples of how my grandmother helped people in distress, as well. Yeah, my mother told me that. And he said, Well, then certainly She must have told you about Jesus. 
+And I said, Could you give me an example of one of the things that she did that had great power for you in helping you remember the joy that we feel in contributing to people's well being? 
 
-I said, What? No, she didn't tell me about Jesus. 
+He said, Well, there's so many things she did. It's hard to pick one out. He said, Well, as your mother told you about the time that she brought Taylor and his wife and two children into the house when they lost their house during the depression. They stayed in the house for five years. 
 
-So he went on to tell me this story about Jesus. One day a man showed up at my mother's back door, he had a wild beard. And around his neck, he had a tree branch in the rough shape of a cross. And like many people did, knowing my grandmother's generosity, he said he was hungry and would appreciate some food. So she invited him into her kitchen. And while he was sitting there eating, she asked him his name.
+*Yes, my mother told me that story uncle*. 
+
+Then he went on and told me two other examples of how my grandmother helped people in distress, as well. 
+
+*Yeah, my mother told me that*. 
+
+#### And he said, then certainly she must have told you about Jesus. 
+
+*I said, What? No, she didn't tell me about Jesus*. 
+
+So he went on to tell me this story about Jesus. 
+
+One day a man showed up at my mother's back door, he had a wild beard. Around his neck, he had a tree branch in the rough shape of a cross. Like many people did, knowing my grandmother's generosity, *he said he was hungry and would appreciate some food*. 
+
+So she invited him into her kitchen. While he was sitting there eating, she asked him his name.
 
 24:54  
-And he said, my name is Jesus.
+*And he said, my name is Jesus.*
 
 24:58  
-Now, my grandmother Ask him, and what is your last name? And he said, I'm Jesus the Lord. When my uncle came in the room, my grandmother introduced him as Mr. The Lord. My grandmother's english wasn't too good. She then asked this man, where do you live? He said, I don't have a house. And she said, Where are you going to sleep tonight? It's very cold outside. He said, I don't know. She said, Would you like to stay here?
+Now, my grandmother Ask him, and what is your last name? 
+
+*He said, I'm Jesus the Lord*. 
+
+When my uncle came in the room, my grandmother introduced him as Mr. The Lord. My grandmother's english wasn't too good. She then asked this man, where do you live? 
+
+*He said, I don't have a house*. 
+
+She said, Where are you going to sleep tonight? It's very cold outside. 
+
+*He said, I don't know*. 
+
+She said, Would you like to stay here?
 
 25:31  
-He stayed seven years.
+*He stayed seven years*.
 
 25:34  
-After my uncle told me that story, I asked my mother that night, Mother, how come you never told me the story about Jesus? Oh, she said, I thought I had. It was a story like that almost every day about your grandmother that was very touched about this story of my uncle telling me how he had been enriched by my grandmother's generosity to people. And how the strengthen him to enjoy being generous. 
+After my uncle told me that story, I asked my mother that night, Mother, how come you never told me the story about Jesus? 
+
+*Oh, she said, I thought I had. It was a story like that almost every day about your grandmother.* 
+
+I was very touched by this story of my uncle telling me how he had been enriched by my grandmother's generosity to people, and how that strengthened him to enjoy being generous. 
 
 #### That night, a song came to me about my grandmother and Jesus.
 
@@ -184,7 +306,7 @@ After my uncle told me that story, I asked my mother that night, Mother, how com
 
 —“Grandma & Jesus” by Marshall B. Rosenberg
 
-### Why we don't express grattitude
+## Other reasons we don't express gratitude
 
 28:30  
 Now I'd like to discuss the reasons that people tell me that they themselves have not expressed gratitude yet that they want to be sure they do express what they think the reasons might have been why gratitude they would have liked to have received, but they didn't. One of the most frequent reasons that people tell me they don't express gratitude is well they think the other person knows that it's not necessary. And that was one of the reasons I saw that kept me from expressing some of the gratitude that I didn't express yet. I tell people, when that's their reason for not expressing it. I tell them that I went to the people that I didn't express my gratitude to, because I assumed that they knew it.
