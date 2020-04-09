@@ -83,8 +83,6 @@
 * Increasing capacity for needs-based sharing of resources
 * Protective use of force
 
-[![](https://i.imgur.com/LKOKvVd.jpg)](https://www.mediateyourlife.com/handouts/)
-
 ## The Book
 
 <img src="http://i.imgur.com/WvOKqub.png" align="right">
@@ -130,6 +128,8 @@ State the need that is the cause of that feeling. Or, guess the need that caused
 #### 4. Requests
 
 Make a concrete request for action to meet the need just identified. Ask clearly and specifically for what you want right now, rather than hinting or stating only what you don't want.
+
+[![](https://i.imgur.com/LKOKvVd.jpg)](https://www.mediateyourlife.com/handouts/)
 
 ## Feelings Inventory
 
@@ -333,7 +333,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > Emotional competency is an important skill that can provide several benefits throughout many aspects of your life. It can increase the satisfaction you have with relationships while it increases your gratification and contentment with the many simple events in your life. It can give you greater insight and help you better understand the motives and actions of yourself and others. 
   >
   > You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
-* [Atlass of Emotions](http://atlasofemotions.org/)
+* [Atlas of Emotions](http://atlasofemotions.org/)
 * [Empathy Training Design Project](https://sites.google.com/site/listeningwellbook/) - Project Development and Work Website
   > Our Challenge: How might we design and build a Culture of Empathy training?
 
@@ -350,7 +350,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 * [Say What You Mean](https://more.orenjaysofer.com) by Oren Jay Sofer
   > How to speak and listen more effectively--to communicate mindfully and improve all relationships--based on the author's unique synthesis of mindfulness practice combined with the principles of nonviolent communication.
-* [Oren Jay Sofer Youtube Channel](https://www.youtube.com/channel/UCt7wz0QFnoI-CHNovcFs3Ug)
+* [Oren Jay Sofer - Youtube Channel](https://www.youtube.com/channel/UCt7wz0QFnoI-CHNovcFs3Ug)
   * [Say What You Mean: A Mindful Approach to Nonviolent Communication](https://www.youtube.com/watch?v=GpZMcFzO4eo) 
 * [Ep. 37: Oren Jay Sofer — How to Improve Your Relationships with Better Communication](https://podcasts.apple.com/us/podcast/ep-37-oren-jay-sofer-how-to-improve-your-relationships/id1419082632?i=1000434587959)
   > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
