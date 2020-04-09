@@ -12,7 +12,6 @@
 
 ## TOC
 
-* [Core Presentations of NVC by Marshall Rosenberg](#core-presentations---nvc---marshall-rosenberg)
 * [Marshall Rosenberg](#marshall-rosenberg)
 * [Introductory Resources](#introductory)
 * [Assumptions and Intentions](#assumptions-and-intentions)
@@ -20,29 +19,16 @@
 * [NVC Model](#nvc-model)
 * [Feelings Inventory](#feelings-inventory)
 * [Human Needs and Human-scale Development](#human-needs-and-human-scale-development)
-* [Jakal and Giraffe Language](#jakal-and-giraffe-language)
+* [Marshall Rosenberg NVC Presentations - Audio\Video](#marshall-rosenberg-nvc-presentations---Audio-Video)
+* [NVC Online Practice](#nvc-online-practice)
 * [Resources](#resources)
   * [Podcasts](#podcasts)
   * [Research](#research)
+* [Jackal and Giraffe Language](#jackal-and-giraffe-language)
 * [Other](#other)
   * [A Mindful Approach to Nonviolent Communication](#mindful-approach-to-nonviolent-communication)
 * [Center for Non-Violent Communication](#center-for-non-violent-communication)
 
-## Core Presentations - NVC - Marshall Rosenberg
-
-* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
-  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
-* [Nonviolent Communication Training Sessions 1-9 - Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
-  * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
-  * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
-  * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
-  * [Session #4 The Dynamics of Empathy](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s) — [Transcript with References](NVC-Training-4_Dynamics-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-4-nonviolent-communication-training-course/id1497893802?i=1000464696651)
-  * [Session #5 Intimate Relationships](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s) — [Transcript with References](NVC-Training-5_Intimate-Relationships_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-5-nonviolent-communication-training-course/id1497893802?i=1000464696436)
-  * [Session #6 Authority: Respect vs Fear](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s) — [Transcript with References](NVC-Training-6_Authority--Respect-vs-Fear_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-6-nonviolent-communication-training-course/id1497893802?i=1000464696653)
-  * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
-  * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
-  * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
-* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
 
 ## Marshall Rosenberg
 
@@ -202,21 +188,48 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
 | **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
 
+## Marshall Rosenberg NVC Presentations - Audio\Video
 
-## Jakal and Giraffe Language
+* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
+  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
+* [Nonviolent Communication Training Sessions 1-9 - Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
+  * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
+  * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
+  * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
+  * [Session #4 The Dynamics of Empathy](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s) — [Transcript with References](NVC-Training-4_Dynamics-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-4-nonviolent-communication-training-course/id1497893802?i=1000464696651)
+  * [Session #5 Intimate Relationships](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s) — [Transcript with References](NVC-Training-5_Intimate-Relationships_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-5-nonviolent-communication-training-course/id1497893802?i=1000464696436)
+  * [Session #6 Authority: Respect vs Fear](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s) — [Transcript with References](NVC-Training-6_Authority--Respect-vs-Fear_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-6-nonviolent-communication-training-course/id1497893802?i=1000464696653)
+  * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
+  * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
+  * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
+* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
+* [Media - NVCWiki](https://en.nvcwiki.com/index.php/Media)
+* [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
+* [Marshall Rosenberg - Making Life Wonderful 1/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=LnAEF_TU1z4)
+* [Marshall Rosenberg - Making Life Wonderful 2/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=KdFc2B-tZLc)
+* [Marshall Rosenberg - Making Life Wonderful 3/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=Ljh6cwo0Jyw)
+* [Marshall Rosenberg - Making Life Wonderful 4/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=ZFSD5uXsmAw)
+* [Nonviolent Communication NVC International Intensive Training I.I.T. by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
+* [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
+* [NVC Academy](https://www.youtube.com/user/nvcacademy)
 
-* [Compassionate Communication by Marshall B. Rosenberg, Ph.D.](https://www.naturalchild.org/articles/marshall_rosenberg/compassionate_communication.html)
-  > At an early age, most of us were taught to speak and think Jackal. This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately it provokes defensiveness, resistance and counterattack. Giraffe bids us to speak from the heart, to talk about what is going on for us - without judging others. In this idiom, you give people an opportunity to say yes, although you respect no for an answer. Giraffe is a language of requests; Jackal is a language of demands.
+## NVC Online Practice
 
-![](https://giraffeincblog.files.wordpress.com/2011/02/jakal-giraffe1.jpg)
+* [The Exercise – Shifting Toward Compassion](https://www.nycnvc.org/the-exercise) By Thom Bond 
+  > Even though this is an online exercise, you still need a pen or pencil and a piece of paper with a blank side. I created this  exercise so people can have what I call a "Shift". By that I mean experience a "shift" in what you are thinking about and a shift in how you feel. To understand "shift," I have found it helpful to imagine a line like the one below labeled "Connection Continuum". On one end is rage, disconnect and violence... on the other is compassion, connection and peace. In any given moment we are all somewhere on this line (many or most of us in the middle somewhere).
+* [Compassion Course Online](https://nycnvc.wufoo.com/forms/sh1ind50unej3b/) - COURSE STARTS WEDNESDAY JUNE 24
+* [Nonviolent Communication Companion Workbook 2nd Edition](https://cnvc-bookstore.myshopify.com/products/nonviolent-communication-companion-workbook-2nd-edition)
+  > Learning Nonviolent Communication (NVC) has often been equated with learning a whole new language. The NVC Companion Workbook helps you put these powerful, effective communication skills into practice with chapter-by-chapter study of Rosenberg's cornerstone text,NVC: A Language of Life.
+* [Fundamentals of Compassionate Communication (Online)](https://www.cnvc.org/training/fundamentals-compassionate-communication-online)
+* [Essentials of Nonviolent Communication](https://www.meetup.com/Geneva-NVC-Practice/events/269155244/) - Saturday, May 16, 2020
+* [Upcoming NVC Trainings](https://www.cnvc.org/trainings/practice-groups) - cnvc
+* [NVC Practice Groups](https://www.meetup.com/topics/nvc-practice-group/) - Meetup - Find out what's happening in NVC practice group Meetup groups around the world and start meeting up with the ones near you.
+* [Taste of Compassionate Leadership](http://nvctraining.com/media/_2020/TOCL/TOCL/index.html)
+  > On the fourth Saturday of most months, please join us for a 2-hour session and enjoy a taste of living within our empathic community, as well as a brief training and practice with our trainers. You will learn concrete skills and steps for practicing compassion and leadership in your life. 
+* [NVC Mailing Lists](https://en.nvcwiki.com/index.php/Mailing_lists)
+* [@NVCPractice](https://www.facebook.com/pg/NVCpractice/) - NVC online events, videos and links
+  > This page is about NVC things people can do online or by phone. 
 
-* [Giraffe Language: Changing Learned Communication Patterns](https://giraffeincblog.com/2011/02/25/jackal-and-giraffe-language/)
-  > Giraffe Language is interpersonal communication divided into two fundamental genres: “jackal” and “giraffe.” From infancy our culture teaches us to speak “jackal,” a language of demands that provoke defensiveness, resistance and counterattack. “giraffe,” on the other hand, is the language of requests that allows us to communicate with others in respectful, compassionate ways. Why giraffe? Because giraffes have the largest hearts of all land animals (up to 40 lbs!). Jackals, due to their low proximity to the ground, tend to see just what’s under their noses. Jackal language symbolizes short-sighted, self-protecting, limited communication.
-* [Non-violent communication: are you a jackal or a giraffe?](https://arielfreespirit.wordpress.com/2017/03/14/non-violent-communication-are-you-a-jackal-or-a-giraffe/)
-  > I’ve recently watched a quite lengthy but fun presentation by psychologist Marshall Rosenberg on non-violent communication. I highly recommend it: that man’s a stand-up comedian. Rosenberg coined the terms giraffe and jackal language in interpersonal communication, where the former is the language of the heart, the giraffe being the animal with the largest heart (up to 40 lbs), while the latter is a language of criticism and demands that only triggers counterattack and defensiveness. He describes an easy six-step approach to having productive communication as a giraffe in conflictual situations that I’ll try to do justice to.
-* [“GIRAFFE LANGUAGE” AND “JACKAL LANGUAGE”: A STUDY OF TWO OPPOSITE COMMUNICATION RITUALS](http://journalarticle.ukm.my/5338/1/V28_1_1-16.pdf) - Jurnal Komunikasi Malaysian Journal of Communication 
-  > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
-* [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
 
 ## Resources
 
@@ -244,8 +257,10 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   * [COURAGEOUS COMMUNICATION](http://opencommunication.org/CourageousCommunication-PeggySmith.pdf) by Peggy Smith, CNVC certified NVC Trainer - a Nonviolent Communicaton Curriculum for the Maine Coastal Regional Reentry Center
 * [Transcript of 2-Day Advanced Intensive NVC: Nonviolent Communication](http://eqi.org/p3/unfin/nvc_advanced_training.htm) by Marshall Rosenberg, Ph.D
   > The following is a slightly edited transcript of a training Marshall Rosenberg led on Bainbridge Island, Washington, USA, October 20-21, 2000. We are grateful to Lin Rose for transcribing this training. Please note that Marshall sometimes uses Giraffe and Jackal as metaphors for Nonviolent Communication and life-alienated thinking and speaking, respectively.
-* [Nonviolent Communication](https://issuu.com/nonviolent) Salzburg, Austria - Nonviolent Communication books. Feelings and needs based communication.
-
+* [Nonviolent Communication](https://issuu.com/nonviolent) - Salzburg, Austria - Nonviolent Communication books. Feelings and needs based communication.
+* [NVC Informational Handouts](https://nvcnextgen.org/aboutnvc/nvc-handouts/)
+* [Work Collaboratively - Learning Resources](https://workcollaboratively.com/resources/learning-resources/)
+* [NVC Academy](https://nvctraining.com/)
 
 ### Podcasts
 
@@ -272,18 +287,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > This time on Peace Talks, Nonviolent Communication (NVC) with Marshall Rosenberg. NVC is a verbal technology for exchanging information and resolving differences peacefully. Marshall Rosenberg, who founded the NVC technique is captured before a live Albuquerque audience talking about how this communication style helps to resolve conflict. He also helps members of the studio audience develop solutions to conflict scenarios using the principles of Nonviolent Communication. Co hosts: Paul Ingles and Suzanne Kryder.
 
 
-### Additional Video
-
-* [Media - NVCWiki](https://en.nvcwiki.com/index.php/Media)
-* [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
-* [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
-* [NVC Academy](https://www.youtube.com/user/nvcacademy)
-* [Marshall Rosenberg - Making Life Wonderful 1/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=LnAEF_TU1z4)
-* [Marshall Rosenberg - Making Life Wonderful 2/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=KdFc2B-tZLc)
-* [Marshall Rosenberg - Making Life Wonderful 3/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=Ljh6cwo0Jyw)
-* [Marshall Rosenberg - Making Life Wonderful 4/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=ZFSD5uXsmAw)
-* [Nonviolent Communication NVC International Intensive Training I.I.T. by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
-
 ### Articles
 
 * [cnvc.org - Articles](https://www.cnvc.org/learn-nvc/articles)
@@ -307,6 +310,23 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 [![](https://i.redd.it/5t3cpkiw3rp41.jpg)](https://www.reddit.com/r/NVC/comments/frlfcy/hey_i_found_this_nonviolent_communicating_guide/)
 
+
+
+## Jackal and Giraffe Language
+
+* [Compassionate Communication by Marshall B. Rosenberg, Ph.D.](https://www.naturalchild.org/articles/marshall_rosenberg/compassionate_communication.html)
+  > At an early age, most of us were taught to speak and think Jackal. This language is from the head. It is a way of mentally classifying people into varying shades of good and bad, right and wrong. Ultimately it provokes defensiveness, resistance and counterattack. Giraffe bids us to speak from the heart, to talk about what is going on for us - without judging others. In this idiom, you give people an opportunity to say yes, although you respect no for an answer. Giraffe is a language of requests; Jackal is a language of demands.
+
+![](https://giraffeincblog.files.wordpress.com/2011/02/jakal-giraffe1.jpg)
+
+* [Giraffe Language: Changing Learned Communication Patterns](https://giraffeincblog.com/2011/02/25/jackal-and-giraffe-language/)
+  > Giraffe Language is interpersonal communication divided into two fundamental genres: “jackal” and “giraffe.” From infancy our culture teaches us to speak “jackal,” a language of demands that provoke defensiveness, resistance and counterattack. “giraffe,” on the other hand, is the language of requests that allows us to communicate with others in respectful, compassionate ways. Why giraffe? Because giraffes have the largest hearts of all land animals (up to 40 lbs!). Jackals, due to their low proximity to the ground, tend to see just what’s under their noses. Jackal language symbolizes short-sighted, self-protecting, limited communication.
+* [Non-violent communication: are you a jackal or a giraffe?](https://arielfreespirit.wordpress.com/2017/03/14/non-violent-communication-are-you-a-jackal-or-a-giraffe/)
+  > I’ve recently watched a quite lengthy but fun presentation by psychologist Marshall Rosenberg on non-violent communication. I highly recommend it: that man’s a stand-up comedian. Rosenberg coined the terms giraffe and jackal language in interpersonal communication, where the former is the language of the heart, the giraffe being the animal with the largest heart (up to 40 lbs), while the latter is a language of criticism and demands that only triggers counterattack and defensiveness. He describes an easy six-step approach to having productive communication as a giraffe in conflictual situations that I’ll try to do justice to.
+* [“GIRAFFE LANGUAGE” AND “JACKAL LANGUAGE”: A STUDY OF TWO OPPOSITE COMMUNICATION RITUALS](http://journalarticle.ukm.my/5338/1/V28_1_1-16.pdf) - Jurnal Komunikasi Malaysian Journal of Communication 
+  > This paper refers to the “giraffe language” and “jackal language”, which allude to the “non-violent communication” concept according to Marshall B. Rosenberg. The two languages being discussed describe two different types of rhetoric and, at the same time, two opposite communication/social rituals used by people in their everyday life and also in the mass media, and omnipresent in the advertisement. The paper tries to draw attention that contemporary media is based on “jackal language” (often strongly rooted in our culture and mentality) being a language of violence, blocking empathy and stimulating conflicts and tension in interpersonal communication and relationships). Unfortunately media makes a tremendous impact on the customers (especially on young people).This paper aims to propagate and encourage using the “giraffe language” described as the language of love, understanding and clemency. The ‘giraffe language’ encourages constructive, matter-of-fact and unbiased communication. A long giraffe’s neck became its symbol - a metaphor of perfect (objectivity) communication. 
+* [Learning to speak Giraffe - Nonviolent Communication in action](https://networkmagazine.ie/articles/learning-speak-giraffe-nonviolent-communication-action)
+
 ## Other
 
 * [Emotional Competency - Study Guide](http://www.emotionalcompetency.com/searchsite.htm)
@@ -314,6 +334,11 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   >
   > You can free yourself from anger, hate, resentment, vengeance, and other destructive emotions that cause hurt and pain. You can feel relief and enjoy greater peace-of-mind, autonomy, intimacy, dignity, competence, and wisdom as you engage more deeply with others. Increasing your tolerance and compassion can lead to an authentic optimism and a well-founded confidence, based on your better understanding and interpretation of what-is.
 * [Atlass of Emotions](http://atlasofemotions.org/)
+* [Empathy Training Design Project](https://sites.google.com/site/listeningwellbook/) - Project Development and Work Website
+  > Our Challenge: How might we design and build a Culture of Empathy training?
+
+### Miki Kasthan
+
 * [Miki Kasthan - The Inseparability of Psychological and Social Transformation](https://podcasts.apple.com/us/podcast/emerge-making-sense-of-whats-next/id1057220344?i=1000431035111)
   > We talk about how economic and cultural systems inform our psychology, why none of us can know what ‘human nature’ is, the necessity of communities of practice for those who seek to transform their consciousness, how to practice full spectrum nonviolence, the unsettling power of moral authority, and the central significance of connecting with and expressing our biological needs.
 * [Ep. 37 Miki Kashtan on the three shifts needed for self-managing organisations to thrive](https://podcasts.apple.com/dk/podcast/ep-37-miki-kashtan-on-three-shifts-needed-for-self/id1234632893?i=1000450072937)
