@@ -213,13 +213,9 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
 * [NVC Academy](https://www.youtube.com/user/nvcacademy)
 
-## NVC Online Practice
+## Online Practice and Virtual Training
 
-* [The Exercise – Shifting Toward Compassion](https://www.nycnvc.org/the-exercise) By Thom Bond 
-  > Even though this is an online exercise, you still need a pen or pencil and a piece of paper with a blank side. I created this  exercise so people can have what I call a "Shift". By that I mean experience a "shift" in what you are thinking about and a shift in how you feel. To understand "shift," I have found it helpful to imagine a line like the one below labeled "Connection Continuum". On one end is rage, disconnect and violence... on the other is compassion, connection and peace. In any given moment we are all somewhere on this line (many or most of us in the middle somewhere).
 * [Compassion Course Online](https://nycnvc.wufoo.com/forms/sh1ind50unej3b/) - COURSE STARTS WEDNESDAY JUNE 24
-* [Nonviolent Communication Companion Workbook 2nd Edition](https://cnvc-bookstore.myshopify.com/products/nonviolent-communication-companion-workbook-2nd-edition)
-  > Learning Nonviolent Communication (NVC) has often been equated with learning a whole new language. The NVC Companion Workbook helps you put these powerful, effective communication skills into practice with chapter-by-chapter study of Rosenberg's cornerstone text,NVC: A Language of Life.
 * [Fundamentals of Compassionate Communication (Online)](https://www.cnvc.org/training/fundamentals-compassionate-communication-online)
 * [Essentials of Nonviolent Communication](https://www.meetup.com/Geneva-NVC-Practice/events/269155244/) - Saturday, May 16, 2020
 * [Upcoming NVC Trainings](https://www.cnvc.org/trainings/practice-groups) - cnvc
@@ -229,7 +225,15 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [NVC Mailing Lists](https://en.nvcwiki.com/index.php/Mailing_lists)
 * [@NVCPractice](https://www.facebook.com/pg/NVCpractice/) - NVC online events, videos and links
   > This page is about NVC things people can do online or by phone. 
+* [NWCompass Virtual/Remote Trainings](https://nwcompass.org/trainings/#virtual)
+* [Basics of NVC - ONLINE (Starter or Refresher)](http://www.mahakaruna.org.uk/NONVIOLENT-COMMUNICATION/nvc-workshops/One-day-BasicNVC.html)
 
+### Practice Prep 
+
+* [The Exercise – Shifting Toward Compassion](https://www.nycnvc.org/the-exercise) By Thom Bond 
+  > Even though this is an online exercise, you still need a pen or pencil and a piece of paper with a blank side. I created this  exercise so people can have what I call a "Shift". By that I mean experience a "shift" in what you are thinking about and a shift in how you feel. To understand "shift," I have found it helpful to imagine a line like the one below labeled "Connection Continuum". On one end is rage, disconnect and violence... on the other is compassion, connection and peace. In any given moment we are all somewhere on this line (many or most of us in the middle somewhere).
+* [Nonviolent Communication Companion Workbook 2nd Edition](https://cnvc-bookstore.myshopify.com/products/nonviolent-communication-companion-workbook-2nd-edition)
+  > Learning Nonviolent Communication (NVC) has often been equated with learning a whole new language. The NVC Companion Workbook helps you put these powerful, effective communication skills into practice with chapter-by-chapter study of Rosenberg's cornerstone text,NVC: A Language of Life.
 
 ## Resources
 
