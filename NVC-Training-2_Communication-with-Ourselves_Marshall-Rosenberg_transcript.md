@@ -38,11 +38,11 @@ He said, If you say to somebody, you're selfish, here's how it would sound like 
 When I heard that, I smiled. I said to myself, my goodness, that's pure nonviolent communication. Well, then why was I there to teach them their native language? 
 
 (2:48)
-Actually, I wasn't there to teach them nonviolent communication. Nonviolent communication was their native language. Their one senator for 60,000 people asked me to work with his people, because logging interests were coming into their habitat and destroying their environment, and his people didn't know how to speak with people who worked for the logging interest, who spoke a different language. 
+Actually, I wasn't there to teach them nonviolent communication. Nonviolent communication was their native language. Their one senator for 60,000 people asked me to work with his people, because logging interests were coming into their habitat and destroying their environment, and his people didn't know how to speak with people who worked for the logging interest, who spoke a different language. So he was wanting me to show them how you communicate with people who speak this different language. 
 
 ### OJ Harvey - Relationship Between Language and Violence
 
-So he was wanting me to show them how you communicate with people who speak this different language. [OJ Harvey at the University of Colorado](https://neurotree.org/beta/publications.php?pid=490), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions, the more violence in those cultures. 
+[OJ Harvey at the University of Colorado](https://neurotree.org/beta/publications.php?pid=490), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions, the more violence in those cultures. 
 
 #### We have four friends that can help alert us that we are thinking in a way that contributes to violence.
 

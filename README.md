@@ -297,11 +297,12 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [The scientifically proven, step-by-step guide to having a breakthrough conversation across party lines](https://qz.com/838321/nonviolent-communication-the-scientifically-proven-step-by-step-guide-to-having-a-breakthrough-conversation-across-party-lines/)
 * [Collaborative Communication & Email: Best Practices (or How Not to Drive Your Colleagues Entirely Crazy)](https://baynvc.org/collaborative-communication-email-best-practices-or-how-not-to-drive-your-colleagues-entirely-crazy/)
 
-### Research
+### Research and Literature
 
 * [**NVC Research	- NVC Global**](https://nvc-global.net/nvc-research/)
 * [**Recent papers in Nonviolent Communication (NVC) - academia.edu**](https://www.academia.edu/Documents/in/Nonviolent_Communication_NVC_)
 * [**Archive CNVC Research**](http://web.archive.org/web/20170210161629/https://www.cnvc.org/about-us/projects/nvc-research)
+* [**Articles on Social Change and Nonviolent Activism**](https://www.nonviolentcommunication.com/freeresources/article_archive_soc.htm)
 * [What is the impact of the application of the Nonviolent communication model on the development of empathy? Overview of research and outcomes.](https://www.cnvc.org/sites/default/files/NVC_Research_Files/Carme_Mampel_Juncadella.pdf) MSc in Psychotherapy Studies
 * [An exploratory study: Non-violent communication strategies for secondary teachers using a Quality Learning Circle approach](https://www.cnvc.org/sites/default/files/research/Lee_Hooper_Master's%20Thesis.pdf) Lee Hooper
 * [The value of openness in e-relationships: Using Nonviolent Communication to guide online coaching and mentoring.](https://psycnet.apa.org/record/2007-06344-005)
@@ -311,6 +312,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [DEVELOPING NONVIOLENT COMMUNICATION:AN INTEGRAL APPROACHAN INTEGRAL APPROACH](https://kupdf.net/download/beck-developing-nvc-integral-approach_5c8cfa76e2b6f5a157cbcc0d_pdf), Simon R. Beck
 * [A step toward violence prevention: "Non-Violent Communication" as part of a college curriculum](http://fau.digital.flvc.org/islandora/object/fau%3A9751) Susan M Blake
 * [Assessing the Impact of Nonviolent Communication - An Outcome Evaluation](https://www.ganvc.org/research/EVAL-2011-Final.pdf), Molly Burleson, Monique Martin, Rashunda Lewis
+* [Total Honesty/Total Heart: Fostering empathy development and conflict resolution skills. A violence prevention strategy](https://nvc-global.net/wp-content/uploads/2019/04/MLittle_Thesis0408.pdf) Marion Little BA Linguistics, University of Victoria, 2002 
 
 [![](https://i.redd.it/5t3cpkiw3rp41.jpg)](https://www.reddit.com/r/NVC/comments/frlfcy/hey_i_found_this_nonviolent_communicating_guide/)
 

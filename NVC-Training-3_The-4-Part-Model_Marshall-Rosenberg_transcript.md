@@ -42,9 +42,9 @@ First of all, it's very important to be able to made clear observations to peopl
 
 For example, I was working with some school administrators in the United States, in a school system, and I was teaching these principles of schools how to evaluate teachers performance. They were required to do this twice a year to evaluate teachers performances. They would observe the teachers in various situations, and then have a session with the teacher where they would evaluate the teacher. 
 
-In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a nonviolent communication way.
-
 ## Observation and Evaluation
+
+In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a nonviolent communication way.
 
 #### I started by asking them to think of a specific thing that this person does that you don't like. 
 
@@ -624,7 +624,7 @@ If your objective is just to get people to do what you want, don't study nonviol
 | **Protection** | care, adaptability, autonomy | social security, health systems, work | co-operate, plan, take care of, help | social environment, dwelling  |
 | **Affection** | respect, sense of humour, generosity, sensuality | friendships, family, relationships with nature | share, take care of, make love, express emotions | privacy, intimate spaces of togetherness | 
 | **Understanding** | critical capacity, curiosity, intuition | literature, teachers, policies | educational | analyse, study, meditate, investigate | schools, families universities, communities | 
-| **Participation** | receptiveness, dedication, sense of humour | responsibilities, duties, work, rights | cooperate, dissent, express opinions | associations, parties, churches, neighbourhoods |
+| **Participation** | receptiveness, dedication, sense of humour | responsibilities, duties, work, rights | cooperate, dissent, express opinions | associations, parties, churches, neighborhoods |
 | **Leisure** | imagination, tranquillity, spontaneity | games, parties, peace of mind | day-dream, remember, relax, have fun | landscapes, intimate spaces, places to be alone |
 | **Creation** | imagination, boldness, inventiveness, curiosity | abilities, skills, work, techniques | invent, build, design, work, compose, interpret | spaces for expression, workshops, audiences | 
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |

@@ -61,7 +61,7 @@ I wanted to learn about that. I wanted to learn what contributes to violence, so
 
 When it came time to decide what I wanted to do in this world, I decided that I would study psychology. Why did I pick that? I thought that subject would help me with those two questions of what contributes to people being violent and what kind of learning helps people to stay connected to their compassionate nature.
 
-I went to the University with the idea of becoming a clinical psychologist. My thinking was that people who are acting violent must have some kind of mental dysfunction, some kind of illness. So I would learn how to cure this illness. In the course of getting my doctor's degree in psychology, I had the good experience with a professor of mine, Professor Michael Hokkien. He helped me to see that the choice I had made clinical psychology had some limits to it. 
+I went to the University with the idea of becoming a clinical psychologist. My thinking was that people who are acting violent must have some kind of mental dysfunction, some kind of illness. So I would learn how to cure this illness. In the course of getting my doctor's degree in psychology, I had the good experience with a professor of mine, Professor [Michael Hakeem](https://scholar.google.com/scholar?q=Michael+Hakeem). He helped me to see that the choice I had made clinical psychology had some limits to it. 
 
 First of all, he showed me that the way that psychologists and psychiatrists diagnose people, [didn't have any scientific research to document that these words they use could be scientifically diagnosed](https://www.technologynetworks.com/neuroscience/news/psychiatric-diagnoses-found-to-be-scientifically-meaningless-321555). He also showed me that by **looking at the problem 'why are people violent' as an illness that it overlooks how the structures of our society contribute to people behaving in this way**. He helped me to see that by diagnosing people as mentally ill and believing that the violence was a cause of mental illness. We were then taking the focus away from the education that the structures provided, which create the violence. 
 
@@ -107,7 +107,7 @@ What I mean by giving compassionately is first of all, that whatever we do is do
 
 At the time, I was in private practice of psychology. 
 
-> In my private practice, people were coming to me because of depression. Children were sent to me because they were having problems in school. Couples were coming to me because of marital problems. *I found that this process that I was putting together was much more effective as a healing tool for people than the way I hadn't been taught to do psychotherapy at the university*. 
+> In my private practice, people were coming to me because of depression. Children were sent to me because they were having problems in school. Couples were coming to me because of marital problems. *I found that this process that I was putting together was much more effective as a healing tool for people than the way I had been taught to do psychotherapy at the university*. 
 
 [16:27]  
 At first I was shocked by this because it was so different than how I had been trained to analyze people and provide psychotherapy. It seemed too simple to just show them how some different ways of behaving, different ways of thinking, communicating, using power, how quickly this could correct problems that were taking me months and not getting the same result. Then when I really saw the power that the program had. I also saw that the way I was offering it to people was not the way that I wanted to continue. By offering it in a private practice as a psychologist, the people who were coming to me, were defining that there was something wrong with them, something mentally ill about them for which they needed healing. I was seeing more and more how that very concept of mental illness was a destructive concept because it implied something was wrong with people that needed fixing. That very concept, as I'll talk about in subsequent sessions, I see gets in the way of people's evolution and human development. 
@@ -120,7 +120,9 @@ I wanted to offer what I was finding very valuable in some way other than throug
 So people who had come to me and benefited by the process would invite others that they thought would invite it. The next thing I knew, I was traveling around the United States, because word spreads. People that I had helped in one community to learn the process, and apply it in their lives would tell people that they knew and other communities, and before I knew it, I was spending much of my life traveling around the United States, to different groups of people who are wanting me to share the process with them. In those days, many of the people were concerned with racial relationships. They were seeing the cost of racism and wanted to know how nonviolent communication could be supportive in, first of all, helping people liberate themselves from the kind of thinking and cultural learning that contributed to racism. I was working on that issue with people in many states in the United States, particularly the southern states because, at that time, the country was going through desegregation in the schools and many problems were occurring. People were finding nonviolent communication very helpful, both in transforming racist kinds of thinking into thinking which was more respectful of differences and also helps reconcile warring groups within communities on this subject. 
 
 [20:07]  
-**When the word got around about how valuable nonviolent communication was with dealing with racism, began to be invited to work with people who are concerned about sexism.** Here again, found that the process was very helpful in the work that the people were doing in that area. One of the problems I faced was that working with the people in those areas, racism and sexism, often did not have much money to offer me for providing the help that I was giving them. When I was in private practice, I was getting a lot of affluent people coming to me for my services, but just to go out and offer it to people around that would invite me into their community, having heard about it, the initial groups were not very affluent people. 
+**When the word got around about how valuable nonviolent communication was with dealing with racism, began to be invited to work with people who are concerned about sexism.** Here again, found that the process was very helpful in the work that the people were doing in that area. 
+
+One of the problems I faced was that working with the people in those areas, racism and sexism, often did not have much money to offer me for providing the help that I was giving them. When I was in private practice, I was getting a lot of affluent people coming to me for my services, but just to go out and offer it to people around that would invite me into their community, having heard about it, the initial groups were not very affluent people. 
 
 To get around the United States, it was pretty costly for me to stop overnight and be in a hotel. So **much of the time I had to sleep outdoors as I was traveling from city to city**. This was no problem when the weather was good because I had a pretty good sleeping bag, but of course it could be quite uncomfortable in the wintertime, or when it rained. One day as I was driving through Kansas, and I was about to stop cuz it was nighttime and I needed some sleep and on my way back home. The problem was it was raining very hard. When it did that, I would need to go into the nearby town and find some overhang on some building that I could sleep under. 
 
@@ -236,14 +238,18 @@ I have found through my working with people over the years, that anytime people 
 
 I believe that anytime we influence people, like criticism, blame insults, even if they do what we request, it will be very costly to us. Because then they're not giving compassionately from the heart. They're giving to avoid shame or guilt. Giving done out of that energy, I believe is costly to both parties in any relationship. 
 
-**Nonviolent communication also suggests that we avoid at all times any use of punishment.** Now that shocks many people around the world that I work with, they have the idea that without punishment, you have anarchy. You'll have violence, you'll have all kinds of horrible things happen. They believe that the only way you can have order is through a justice system in which people punished if they don't do what the authorities think is right. 
+## Avoiding Punishment + Reward
+
+**Nonviolent communication also suggests that we avoid at all times any use of punishment.** 
+
+Now that shocks many people around the world that I work with, they have the idea that without punishment, you have anarchy. You'll have violence, you'll have all kinds of horrible things happen. They believe that the only way you can have order is through a justice system in which people punished if they don't do what the authorities think is right. 
 
 In subsequent sessions, I will show how we can resolve conflicts without any kind of punishment. But that's not easy for many people to feel comfortable with, that I work with, because they have been in schools, families, governments, are all set up on the basis of retributive justice, the idea that there are certain things you must do and if you don't do them, and you deserve to suffer for what you have done, and if you do these things, which are defined as right by authorities, then you deserve to be rewarded. 
 
 [41:44]  
-When I suggest other alternatives to conflict resolution, then punishment and reward. It's enormously shocking to people. One of the things that helps is I say to people that** 
+When I suggest other alternatives to conflict resolution, then punishment and reward. It's enormously shocking to people. One of the things that helps is, I say to people,
 
-#### if you ask yourself two questions, You will see that punishment and reward never work.
+#### If you ask yourself two questions, you will see that punishment and reward never work.
 
 what are these two important questions? 
 
@@ -251,7 +257,7 @@ what are these two important questions?
 
 Now, if you answer only that question, it can lead you to think that punishment sometimes works. Because certainly we can all think of evidence, I would guess, of a time when maybe we were influenced to do something out of fear of punishment, or we were able to influence our children to do things that because they were afraid they'd be punished if they didn't. So if you define works as simply getting people to do what you want, punishment sometimes works. 
 
-If you ask a second question of yourself, I believe you will see that punishment never works. What The second question, 
+If you ask a second question of yourself, I believe you will see that punishment never works. 
 
 - What do you want the other person's reasons to be for doing what you request of them?
 
@@ -266,10 +272,12 @@ Now people wonder why I put rewards into this same category of something that if
 #### It also suggests the danger of a language that denies choice
 
 [45:25]  
-I often refer to this language that denies choice by using the German word [Amtssprache](https://en.nvcwiki.com/index.php/Amtssprache). I started to use that phrase umpt sprache, having read about the Nazi war criminal [Adolf Eichmann](https://en.wikipedia.org/wiki/Adolf_Eichmann). **At his trial for war crimes in Jerusalem, Eichmann was asked was it difficult for you to send thousands of people to their death?**
+I often refer to this language that denies choice by using the German word [Amtssprache](https://en.nvcwiki.com/index.php/Amtssprache). I started to use that phrase Amtssprache, having read about the Nazi war criminal [Adolf Eichmann](https://en.wikipedia.org/wiki/Adolf_Eichmann). 
+
+**At his trial for war crimes in Jerusalem, Eichmann was asked was it difficult for you to send thousands of people to their death?**
 
 [45:55]  
-Eichmann on answered very honestly, he said to tell you the truth. It was easy. **Our language made it easy.** That answer shocked his interviewer and his interviewer said what language and Eichman said, my fellow Nazi officers and we came up with a name for describing the language of its we were taught in schools to us and especially to us in our position as officers in the military. We called this language Amtssprache up between us. Well, in German, means office and means language. So what they were referring to then was a language of bureaucracy. 
+Eichmann on answered very honestly, he said to tell you the truth. It was easy. **Our language made it easy.** That answer shocked his interviewer and his interviewer said what language and Eichman said, my fellow Nazi officers and we came up with a name for describing the language of its we were taught in schools to us and especially to us in our position as officers in the military. We called this language Amtssprache up between us. Well, in German, *Amt* means office and *sprache* means language. So what they were referring to then was a language of bureaucracy. 
 
 Eichmann was asked for some examples of Amtssprache, and Eichmann said it's a language in which you deny responsibility for your actions. If you don't feel responsible for your actions, you don't feel so bad when you do things like send people to their death. It was asked for some examples of this. Eichmann said, Well, if somebody asked you why you do it, you say I had to, I had no choice. **if people question that and say, Well, what do you mean you had no choice then you say, superiors orders, company policy. It's the law.** 
 
@@ -280,7 +288,7 @@ dangerous, dangerous language, a language that denies choice. Nonviolent communi
 That bothers a lot of people when I say that in our trainings around the world. 
 
 [47:58]  
-For example, a story Yeah, clarifies this occurred in city in the United States where I was working with some parents and teachers. When **I suggested that words like have to, should, ought, must, can't, are dangerous, as I would define danger, because they turn out people who don't feel responsible for their actions.** one of the mothers who attended this session got very upset, and she said, but there are some things you have to do, that you have no choice of. There are things I do every day that I hate to do, but there are some things you have to do and it is our job as parents and teachers to see that our children do what they have to do. I said to her, could you give me an example of something you do that you believe now that you have no choice? 
+For example, a story that clarifies this occurred in city in the United States where I was working with some parents and teachers. When **I suggested that words like have to, should, ought, must, can't, are dangerous, as I would define danger, because they turn out people who don't feel responsible for their actions.** One of the mothers who attended this session got very upset, and she said, but there are some things you have to do, that you have no choice of. There are things I do every day that I hate to do, but there are some things you have to do and it is our job as parents and teachers to see that our children do what they have to do. I said to her, could you give me an example of something you do that you believe now that you have no choice? 
 
 She thought for a moment and said, oh, there's so many things But okay, here's one. When I go home this evening, I have to cook. I hate to cook, I hate it with a passion. But I have done it every day for 20 years, even when I've been sick, I do it. There just are some things you do. I told her I was very sad to hear anybody do anything even one time out of that kind of thinking, thinking in which you believe you have no choice. I told her that I was hoping that if I made clear the value of nonviolent communication and she applied it, she would see many more options open to her in her life. I'm pleased to say she was a very rapid student and applied nonviolent communication very quickly in her life. **She went home that very evening from the workshop and denounced her family that she no longer wanted to cook.**
 
