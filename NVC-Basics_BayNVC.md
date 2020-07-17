@@ -318,7 +318,7 @@ If you want to share these materials, visit http://bit.ly/material-share for inf
 
 _This list builds on Marshall Rosenberg's original needs list with categories adapted from Manfred Max-Neef. Neither exhaustive nor definitive, it can be used for study and for discovery about each person's authentic experience._
 
-| **Subsistence and Security** | **Freedom** | **Meaning** |
+| <u><b>Subsistence and Security</u></b> | <u><b>Freedom</u></b> | <u><b>Meaning</u></b> |
 | --- | --- | --- |
 | **_Physical Sustenance_** | **_Autonomy_** | **_Sense of Self_** |
 | Air <br> Food <br> Health <br> Movement <br> Physical <br> Safety <br> Rest / sleep <br> Shelter <br> Touch <br> Water | Choice <br> Ease <br> Independence <br> Power <br> Self-responsibility <br> Space <br> Spontaneity | Authenticity <br> Competence <br> Creativity <br> Dignity <br> Growth <br> Healing <br> Honesty <br> Integrity <br> Self-acceptance <br> Self-care <br> Self-connection <br> Self-knowledge <br> Self-realization <br> Mattering to myself |
