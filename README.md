@@ -314,9 +314,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [Assessing the Impact of Nonviolent Communication - An Outcome Evaluation](https://www.ganvc.org/research/EVAL-2011-Final.pdf), Molly Burleson, Monique Martin, Rashunda Lewis
 * [Total Honesty/Total Heart: Fostering empathy development and conflict resolution skills. A violence prevention strategy](https://nvc-global.net/wp-content/uploads/2019/04/MLittle_Thesis0408.pdf) Marion Little BA Linguistics, University of Victoria, 2002 
 
-[![](https://i.redd.it/5t3cpkiw3rp41.jpg)](https://www.reddit.com/r/NVC/comments/frlfcy/hey_i_found_this_nonviolent_communicating_guide/)
-
-
+[![](https://baynvc.org/wp-content/uploads/2015/06/NVC-Tree-of-Life-1100x1424.jpg)](https://baynvc.org/the-nvc-tree-of-life/)
 
 ## Jackal and Giraffe Language
 
