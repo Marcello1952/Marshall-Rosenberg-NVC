@@ -244,19 +244,19 @@ If you want to share these materials, visit http://bit.ly/material-share for inf
 
 Adapted from CNVC materials, with the addition of a 5th category.
 
-• **Diagnosis** – Criticism, Judgment, Analysis, Comparison, Blame: Implying wrongness or badness. e.g. "You are too sensitive."
-• **Demands** – Making requests which implicitly or explicitly threaten some form of blame or punishment if the request is not acted upon. e.g. "Please type up this report. I am going to be very upset if it's not ready in time."
-• **Deserve** – Justification of Reward and Punishment: Implying that certain actions merit reward and certain actions merit punishment. e.g. "He deserves to be punished for what he did."
-• **Denial of Responsibility** – Attributing the cause of our actions or feelings to anything other than our needs:
-• **Others' Actions** : "I fired my secretary because she didn't type my reports in time."
-• **Dictates of Authority** : "I misrepresented our earnings in our accounting system because my boss told me to."
-• **Institutional Policies, Rules, hand Regulations** : "I can't stop giving grades because it's the school's policy."
-• **Group Pressure** : "I drink after work because everyone else does."
-• **Gender, Social or Age Roles** : "I hate going to work but I do it because I am a father and a husband."
-• **Uncontrollable Impulses** : "I couldn't help flirting with her."
-• **Diagnosis, Psychological History** : "I yell at my children because I grew up in a dysfunctional family."
-• **Vague, Impersonal Forces** : "We have to put people in prison because otherwise nobody would be safe in the streets."
-• **Discounting** – Any use of language which denies either individual experience or the ways individuals are affected by systems. This may involve denying differences, which can invalidate individual experience. It also may involve framing reality only at the individual level without acknowledging a systemic dimension. Or, it may involve seeing a person only as a representative of a category of people instead of in their full humanity.
+* **Diagnosis** – Criticism, Judgment, Analysis, Comparison, Blame: Implying wrongness or badness. e.g. "You are too sensitive."
+* **Demands** – Making requests which implicitly or explicitly threaten some form of blame or punishment if the request is not acted upon. e.g. "Please type up this report. I am going to be very upset if it's not ready in time."
+* **Deserve** – Justification of Reward and Punishment: Implying that certain actions merit reward and certain actions merit punishment. e.g. "He deserves to be punished for what he did."
+* **Denial of Responsibility** – Attributing the cause of our actions or feelings to anything other than our needs:
+* **Others' Actions** : "I fired my secretary because she didn't type my reports in time."
+* **Dictates of Authority** : "I misrepresented our earnings in our accounting system because my boss told me to."
+* **Institutional Policies, Rules, hand Regulations** : "I can't stop giving grades because it's the school's policy."
+* **Group Pressure** : "I drink after work because everyone else does."
+* **Gender, Social or Age Roles** : "I hate going to work but I do it because I am a father and a husband."
+* **Uncontrollable Impulses** : "I couldn't help flirting with her."
+* **Diagnosis, Psychological History** : "I yell at my children because I grew up in a dysfunctional family."
+* **Vague, Impersonal Forces** : "We have to put people in prison because otherwise nobody would be safe in the streets."
+* **Discounting** – Any use of language which denies either individual experience or the ways individuals are affected by systems. This may involve denying differences, which can invalidate individual experience. It also may involve framing reality only at the individual level without acknowledging a systemic dimension. Or, it may involve seeing a person only as a representative of a category of people instead of in their full humanity.
 
 ### Non-Empathic Responses
 
