@@ -37,17 +37,16 @@ cnvc@cnvc.org
   * Non-Empathic Responses
   * Feelings/Emotions – Partial List
   * Universal Human Needs – Partial List
-* [Journal: Discovering Needs behind Actions and Choices](NVC-Basics_Journal-Exercises.md#)
-* Journal: Layers of Self-Connection
-* Journal: Facets of Self-Connection
-* Journal: Working with Our "Limitations"
-* Journal: Mourning and Self-Compassion
-* Journal: Mourning and Learning Daily Practice
+* [Journal: Discovering Needs behind Actions and Choices](NVC-Basics_Journal-Exercises_BayNVC.md#journal-discovering-needs-behind-actions-and-choices)
+* [Journal: Layers of Self-Connection](NVC-Basics_Journal-Exercises_BayNVC.md#journal-layers-of-self-connection)
+* [Journal: Facets of Self-Connection](NVC-Basics_Journal-Exercises_BayNVC.md#journal-facets-of-self-connection)
+* [Journal: Working with Our "Limitations"](NVC-Basics_Journal-Exercises_BayNVC.md#journal-working-with-our-limitations)
+* [Journal: Mourning and Self-Compassion](NVC-Basics_Journal-Exercises_BayNVC.md#journal-mourning-and-self-compassion)
+* [Journal: Mourning and Learning Daily Practice](NVC-Basics_Journal-Exercises_BayNVC.md#journal-mourning-and-learning-daily-practice)
 
 ## Key Assumptions and Intentions of NVC
 
-<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
-If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
+<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 <br> If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
 ### I. Assumptions Underlying the Practice of Nonviolent Communication
 
@@ -96,8 +95,7 @@ Having clarity about our intentions can help us live and act in line with our va
 
 ## Basics of Nonviolent Communication
 
-<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
-If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
+<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700  <br> If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
 ### I. Introduction
 
@@ -219,8 +217,7 @@ The following page summarizes the NVC language all in one table.
 
 ## Nonviolent Communication Quick Reference Guide
 
-<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
-If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
+<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 <br> If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
 | **Expression** | **Empathy** |
 | --- | --- |
@@ -260,8 +257,7 @@ Adapted from CNVC materials, with the addition of a 5th category.
 
 ### Non-Empathic Responses
 
-<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
-If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
+<small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 <br> If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
 The following categories are taken from the book Leader Effectiveness Training by Thomas Gordon. The examples are in response to a friend telling you that she is having a drinking problem.
 
@@ -313,8 +309,7 @@ The following are words we use when we want to express a combination of mental s
 ## Universal Human Needs – Partial List
 **_(without reference to specific people, time, actions, things)_**
 
-<small>© 2014 Inbal, Miki and Arnina Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
-If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
+<small>© 2014 Inbal, Miki and Arnina Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 <br> If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
 _This list builds on Marshall Rosenberg's original needs list with categories adapted from Manfred Max-Neef. Neither exhaustive nor definitive, it can be used for study and for discovery about each person's authentic experience._
 

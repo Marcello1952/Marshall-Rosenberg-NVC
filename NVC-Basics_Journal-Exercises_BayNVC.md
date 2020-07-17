@@ -1,5 +1,14 @@
 # NVC Basics - Journal Exercises
 
+## TOC
+
+* [Journal: Discovering Needs behind Actions and Choices](#journal-discovering-needs-behind-actions-and-choices)
+* [Journal: Layers of Self-Connection](#journal-layers-of-self-connection)
+* [Journal: Facets of Self-Connection](#journal-facets-of-self-connection)
+* [Journal: Working with Our "Limitations"](#journal-working-with-our-limitations)
+* [Journal: Mourning and Self-Compassion](#journal-mourning-and-self-compassion)
+* [Journal: Mourning and Learning Daily Practice](#journal-mourning-and-learning-daily-practice)
+
 ## Journal: Discovering Needs behind Actions and Choices
 
 <small>© 2014 Inbal Kashtan and Miki Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700
