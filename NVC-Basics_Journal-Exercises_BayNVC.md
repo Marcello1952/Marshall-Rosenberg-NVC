@@ -9,6 +9,9 @@ Oakland, CA 94609
 nvc@baynvc.org 
 [www.baynvc.org](https://www.baynvc.org)
 
+**More Free Worksheets and Journaling Guides**
+[www.baynvc.org/free-worksheets/](https://baynvc.org/free-worksheets/)
+
 **Center for Nonviolent Communication** 
 5600 San Francisco Rd. NE Suite A 
 Albuquerque, NM, 87109 
