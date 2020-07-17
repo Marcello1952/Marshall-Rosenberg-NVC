@@ -326,4 +326,5 @@ _This list builds on Marshall Rosenberg's original needs list with categories ad
 | Consistency <br> Order/Structure <br> Peace (external) <br> Peace of mind <br> Protection <br> Safety (emotional) <br> Stability <br> Trusting | Acceptance <br> Care <br> Compassion <br> Consideration <br> Empathy <br> Kindness <br> Mutual Recognition <br> Respect <br> To be heard, seen <br> To be known, understood <br> To be trusted <br> Understanding others | Awareness <br> Clarity <br> Discovery <br> Learning <br> Making sense of life <br> Stimulation |
 | | **Community** | **Meaning** | 
 | | Belonging <br> Communication <br> Cooperation <br> Equality <br> Inclusion <br> Mutuality <br> Participation <br> Partnership <br> Self-expression <br> Sharing | Aliveness <br> Challenge <br> Consciousness <br> Contribution <br> Creativity <br> Effectiveness <br> Exploration <br> Integration <br> Purpose |
+| | | **Transcendence** |
 | | | Beauty <br> Celebration of life <br> Communion <br> Faith <br> Flow <br> Hope <br> Inspiration <br> Mourning <br> Peace (internal) <br> Presence |
