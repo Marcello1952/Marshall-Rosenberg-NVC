@@ -2,7 +2,7 @@
 
 ## Reference Materials and Self-Connection Journals
 
-If you find these materials useful, [please contribute to BayNVC](https://baynvc.org/donations/)
+#### If you find these materials useful, [please contribute to BayNVC](https://baynvc.org/donations/)
 
 **Bay Area Nonviolent Communication** 
 P.O. Box 22872 
@@ -21,18 +21,18 @@ cnvc@cnvc.org
 **Website for NVC publications** 
 [www.nonviolentcommunication.com](https://www.nonviolentcommunication.com)
 
-**Table of Contents**
+#### Table of Contents
 
-* Key Assumptions and Intentions of NVC
+* [Key Assumptions and Intentions of NVC](#key-assumptions-and-intentions-of-nvc)
   * I. Assumptions Underlying the Practice of Nonviolent Communication
   * II. Key Intentions when Using Nonviolent Communication
-* Basics of Nonviolent Communication
+* [Basics of Nonviolent Communication](#basics-of-nonviolent-communication)
   * I. Introduction
   * II. Language, Practice, and Intention
   * III. The Components of the NVC Language
   * IV. Empathy
   * V. Self-Empathy
-* Nonviolent Communication Quick Reference Guide
+* [Nonviolent Communication Quick Reference Guide](#nonviolent-communication-quick-reference-guide)
   * Conventional Patterns of Communication
   * Non-Empathic Responses
   * Feelings/Emotions – Partial List
@@ -224,18 +224,10 @@ If you want to share these materials, visit http://bit.ly/material-share for inf
 
 | **Expression** | **Empathy** |
 | --- | --- |
-| **Observation**
- _When I see/hear_ | **Observation**
-_When you see/hear..._ |
-| **Feeling**
- _I feel_ | **Feeling**
- _Are you feeling..._ |
-| **Need**
- _Because I need..._ | **Need**
-_Because you need..._ |
-| **Request**
- _Would you be willing…?_ | **Request**
- _Would you like me to..._ |
+| **Observation** \n _When I see/hear_ | **Observation** \n _When you see/hear..._ |
+| **Feeling** \n _I feel_ | **Feeling** \n _Are you feeling..._ |
+| **Need** \n _Because I need..._ | **Need** \n _Because you need..._ |
+| **Request** \n _Would you be willing…?_ | **Request** \n _Would you like me to..._ |
 
 * **Observations** : As purse a description as possible of what is seen or heard with awareness that power differences affect what stands out to be described and what remains invisible. For example, instead of "She's having a temper tantrum," you could say "She is lying on the floor crying and kicking." If referring to what someone said quote as much as possible instead of rephrasing.
 * **Feelings** : Our emotions rather than our story or thoughts about what others are doing. For example, instead of "I feel manipulated," which includes an interpretation of another's behavior, you could say "I feel uncomfortable." Avoid the following phrasing: "I feel like . . . " and "I feel that..." – as the next words will likely be thoughts, not feelings.
