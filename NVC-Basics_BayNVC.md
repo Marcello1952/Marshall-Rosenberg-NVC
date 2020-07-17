@@ -316,9 +316,12 @@ The following are words we use when we want to express a combination of mental s
 <small>© 2014 Inbal, Miki and Arnina Kashtan • nvc@baynvc.org • [www.baynvc.org](https://www.baynvc.org) • 510-433-0700 
 If you want to share these materials, visit http://bit.ly/material-share for information about what we ask of you.</small>
 
+_This list builds on Marshall Rosenberg's original needs list with categories adapted from Manfred Max-Neef. Neither exhaustive nor definitive, it can be used for study and for discovery about each person's authentic experience._
+
 | **Subsistence and Security** | **Freedom** | **Meaning** |
 | --- | --- | --- |
 | **_Physical Sustenance_** <br> Air <br> Food <br> Health <br> Movement <br> Physical <br> Safety <br> Rest / sleep <br> Shelter <br> Touch <br> Water | **_Autonomy_** Choice <br> Ease <br> Independence <br> Power <br> Self-responsibility <br> Space <br> Spontaneity | **_Sense of Self_** <br> Authenticity <br> Competence <br> Creativity <br> Dignity <br> Growth <br> Healing <br> Honesty <br> Integrity <br> Self-acceptance <br> Self-care <br> Self-connection <br> Self-knowledge <br> Self-realization <br> Mattering to myself |
 | **_Security_** <br> Consistency <br> Order/Structure <br> Peace (external) <br> Peace of mind <br> Protection <br> Safety (emotional) <br> Stability <br> Trusting | **_To Matter_** Acceptance <br> Care <br> Compassion <br> Consideration <br> Empathy <br> Kindness <br> Mutual Recognition <br> Respect <br> To be heard, seen <br> To be known, understood <br> To be trusted <br> Understanding others | **_Understanding_** <br> Awareness <br> Clarity <br> Discovery <br> Learning <br> Making sense of life <br> Stimulation |
 | | **Community** <br> Belonging <br> Communication <br> Cooperation <br> Equality <br> Inclusion <br> Mutuality <br> Participation <br> Partnership <br> Self-expression <br> Sharing | **Meaning** <br> Aliveness <br> Challenge <br> Consciousness <br> Contribution <br> Creativity <br> Effectiveness <br> Exploration <br> Integration <br> Purpose |
-| _This list builds on Marshall Rosenberg's original needs list with categories adapted from Manfred Max-Neef. Neither exhaustive nor definitive, it can be used for study and for discovery about each person's authentic experience._ | | **Transcendence** <br> Beauty <br> Celebration of life <br> Communion <br> Faith <br> Flow <br> Hope <br> Inspiration <br> Mourning <br> Peace (internal) <br> Presence |
+| | | **Transcendence** <br> Beauty <br> Celebration of life <br> Communion <br> Faith <br> Flow <br> Hope <br> Inspiration <br> Mourning <br> Peace (internal) <br> Presence |
+
