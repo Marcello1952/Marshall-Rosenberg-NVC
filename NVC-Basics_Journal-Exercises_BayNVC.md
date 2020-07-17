@@ -1,5 +1,24 @@
 # NVC Basics - Journal Exercises
 
+#### If you find these materials useful, [please contribute to BayNVC](https://baynvc.org/donations/)
+
+**Bay Area Nonviolent Communication** 
+P.O. Box 22872 
+Oakland, CA 94609 
+510-433-0700 
+nvc@baynvc.org 
+[www.baynvc.org](https://www.baynvc.org)
+
+**Center for Nonviolent Communication** 
+5600 San Francisco Rd. NE Suite A 
+Albuquerque, NM, 87109 
+505-244-4041 
+cnvc@cnvc.org 
+[www.cnvc.org](https://www.cnvc.org)
+
+**Website for NVC publications** 
+[www.nonviolentcommunication.com](https://www.nonviolentcommunication.com)
+
 ## TOC
 
 * [Journal: Discovering Needs behind Actions and Choices](#journal-discovering-needs-behind-actions-and-choices)
