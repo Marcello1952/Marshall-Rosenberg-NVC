@@ -224,10 +224,10 @@ If you want to share these materials, visit http://bit.ly/material-share for inf
 
 | **Expression** | **Empathy** |
 | --- | --- |
-| **Observation** \n _When I see/hear_ | **Observation** \n _When you see/hear..._ |
-| **Feeling** \n _I feel_ | **Feeling** \n _Are you feeling..._ |
-| **Need** \n _Because I need..._ | **Need** \n _Because you need..._ |
-| **Request** \n _Would you be willing…?_ | **Request** \n _Would you like me to..._ |
+| **Observation** <br> _When I see/hear_ | **Observation** <br> _When you see/hear..._ |
+| **Feeling** <br> _I feel_ | **Feeling** <br> _Are you feeling..._ |
+| **Need** <br> _Because I need..._ | **Need** <br> _Because you need..._ |
+| **Request** <br> _Would you be willing…?_ | **Request** <br> _Would you like me to..._ |
 
 * **Observations** : As purse a description as possible of what is seen or heard with awareness that power differences affect what stands out to be described and what remains invisible. For example, instead of "She's having a temper tantrum," you could say "She is lying on the floor crying and kicking." If referring to what someone said quote as much as possible instead of rephrasing.
 * **Feelings** : Our emotions rather than our story or thoughts about what others are doing. For example, instead of "I feel manipulated," which includes an interpretation of another's behavior, you could say "I feel uncomfortable." Avoid the following phrasing: "I feel like . . . " and "I feel that..." – as the next words will likely be thoughts, not feelings.
