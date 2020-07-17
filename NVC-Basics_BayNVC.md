@@ -290,10 +290,13 @@ The following are words we use when we want to express a combination of mental s
 
 ### A. Feelings we may experience when our needs are being met
 
-| **AFFECTIONATE** <br> compassionate <br> friendly <br> loving <br> openhearted <br> sympathetic <br> tenderwarm | **EXCITED** <br> amazed <br> animated <br> ardent <br> aroused <br> dazzled <br> eager <br> energetic <br> enthusiastic <br> giddy <br> invigorated <br> lively <br> passionate <br> surprised <br> vibrant | **HOPEFUL** <br> expectant <br> encouraged <br> optimistic | **PEACEFUL** <br> calm <br> clearheaded <br> comfortable <br> centered <br> content <br> equanimity <br> fulfilled <br> mellow <br> quiet <br> relaxed <br> relieved <br> satisfied <br> serene <br> still <br> tranquil <br> trusting |
+| **AFFECTIONATE** | **EXCITED** | **HOPEFUL** | **PEACEFUL** |
 | --- | --- | --- | --- |
-| **CONFIDENT** <br> empowered <br> openproudsafesecure | **EXHILARATED** <br> blissful <br> ecstatic <br> elated <br> enthralled <br> exuberant <br> radiant <br> rapturous <br> thrilled | **JOYFUL** <br> amused <br> delighted <br> glad <br> happy <br> jubilant <br> pleased <br> tickled | **REFRESHED** <br> enlivened <br> rejuvenated <br> renewed <br> rested <br> restored <br> revived |
-| **ENGAGED** <br> absorbed <br> alert <br> curious <br> engrossed <br> enchanted <br> entranced <br> fascinated <br> interested <br> intrigued <br> involved <br> spellbound <br> stimulated | **GRATEFUL** <br> appreciative <br> moved <br> thankful <br> touched | **INSPIRED** <br> amazed <br> awed <br> wonder | |
+| compassionate <br> friendly <br> loving <br> openhearted <br> sympathetic <br> tenderwarm | amazed <br> animated <br> ardent <br> aroused <br> dazzled <br> eager <br> energetic <br> enthusiastic <br> giddy <br> invigorated <br> lively <br> passionate <br> surprised <br> vibrant | expectant <br> encouraged <br> optimistic | calm <br> clearheaded <br> comfortable <br> centered <br> content <br> equanimity <br> fulfilled <br> mellow <br> quiet <br> relaxed <br> relieved <br> satisfied <br> serene <br> still <br> tranquil <br> trusting |
+| **CONFIDENT** | **EXHILARATED** | **JOYFUL** | **REFRESHED** |
+| empowered <br> openproudsafesecure | blissful <br> ecstatic <br> elated <br> enthralled <br> exuberant <br> radiant <br> rapturous <br> thrilled | amused <br> delighted <br> glad <br> happy <br> jubilant <br> pleased <br> tickled |  enlivened <br> rejuvenated <br> renewed <br> rested <br> restored <br> revived |
+| **ENGAGED** | **GRATEFUL** | **INSPIRED** | | 
+| absorbed <br> alert <br> curious <br> engrossed <br> enchanted <br> entranced <br> fascinated <br> interested <br> intrigued <br> involved <br> spellbound <br> stimulated | appreciative <br> moved <br> thankful <br> touched | amazed <br> awed <br> wonder | |
 
 ### B. Feelings we may experience when our needs are not being met
 
@@ -301,13 +304,10 @@ The following are words we use when we want to express a combination of mental s
 | ---- | ---- | ---- | ---- |
 | apprehensive <br> dread <br> foreboding <br> frightened <br> mistrustful <br> panicked <br> petrified <br> scared <br> suspicious <br> terrified <br> wary <br> worried | ambivalent <br> baffled <br> bewildered <br> dazed <br> hesitant <br> lost <br> mystified <br> perplexed <br> puzzled <br> torn | beat <br> burnt <br> out <br> depleted <br> exhausted <br> lethargic <br> listless <br> sleepy <br> tired <br> weary <br> worn out | anxious <br> cranky <br> distressed <br> distraught <br> edgy <br> fidgety <br> frazzled <br> irritable <br> jittery <br> nervous <br> overwhelmed <br> restless <br> stressed out |
 | **ANNOYED** | **DISCONNECTED** | **PAIN** | **VULNERABLE** |
-| ---- | ---- | ---- | ---- |
 | aggravated <br> dismayed <br> disgruntled <br> displeased <br> exasperated <br> frustrated <br> impatient <br> irritated <br> irked | alienated <br> aloof <br> apathetic <br> bored <br> cold <br> detached <br> distant <br> distracted <br> indifferent <br> numb <br> removed <br> withdrawn | agony <br> anguished <br> bereaved <br> devastated <br> grief <br> heartbroken <br> hurt <br> lonely <br> miserable <br> regretful <br> remorseful | fragile <br> guarded <br> helpless <br> insecure <br> leery <br> reserved <br> sensitive <br> shaky |
 | **ANGRY** | **DISQUIET** | **SAD** | **YEARNING** |
-| ---- | ---- | ---- | ---- |
 | angry <br> enraged <br> furious <br> incensed <br> indignant <br> irate <br> livid <br> outraged <br> resentful | agitated <br> alarmed <br> discombobulated <br> disconcerted <br> disturbed <br> perturbed <br> rattled <br> restless <br> shocked <br> startled <br> surprised <br> troubled <br> turbulent <br> turmoil <br> uncomfortable <br> uneasy <br> unnerved <br> unsettled <br> upset | depressed <br> dejected <br> despair <br> despondent <br> disappointed <br> discouraged <br> disheartened <br> forlorn <br> gloomy <br> heavy <br> hearted <br> hopeless <br> melancholy <br> unhappy <br> wretched | envious <br> jealous <br> longing <br> nostalgic <br> pining <br> wistful |
 | **AVERSION** | **EMBARRASSED** | | |
-| ---- | ---- | ---- | ---- |
 | Animosity <br> appalled <br> contempt <br> disgusted <br> dislike <br> hate <br> horrified <br> hostile <br> repulsed | ashamed <br> chagrined <br> flustered <br> mortified <br> self-conscious | | |
 
 ## Universal Human Needs – Partial List
