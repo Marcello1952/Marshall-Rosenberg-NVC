@@ -21,14 +21,11 @@
 
 Hello, my name is Marshall Rosenberg,
 
-I'm very glad to have this opportunity to share with you in this program some skills and some consciousness that have been extraordinarily helpful to me in my life. I'm pleased to say that thousands of people around the world that I've shared it with find it helpful to them.
+I'm very glad to have this opportunity to share with you some skills and some consciousness that have been extraordinarily helpful to me in my life. I'm pleased to say that thousands of people around the world that I've shared it with find it helpful to them, so I'm glad to share it with you, through this program.
 
-So I'm glad to share it with you, through this program.
+In this session, I'll be giving you an introduction to how I came about the process I'll be talking about, sharing its purpose, and give you an outline of the process I call nonviolent communication.
 
-In this session, I'll be giving you an introduction to how I came about the process. I'll be talking about, sharing its purpose, and give you an outline of it. The process I call nonviolent communication.
-
-[0:51]  
-I don't like that title. But why do I use it? Well, I use it because, over the years, it connects me with the people around the world that find our training very valuable in their lives, and in their political activities. I have used it because it connects me with those people. But why I don't like the title. One of the reasons is the same reason that Gandhi didn't like the word nonviolent. It says what something isn't, but nonviolent communication is all focused on what we do want, not just what we don't want. 
+I don't like that title. But why do I use it? I use it because, over the years, it connects me with the people around the world that find our training very valuable in their lives, and in their political activities. I have used it because it connects me with those people. Why I don't like the title. One of the reasons is the same reason that [Gandhi didn't like the word nonviolent](http://www.gandhiashramsevagram.org/gandhi-relevance/chapter-3-theory-of-nonviolence.php). It says what something isn't, but nonviolent communication is all focused on what we do want, not just what we don't want. 
 
 Also, communication is only a small part of what I'll be sharing with you. **Nonviolent communication consists of a value system that we are trying to live by. Then it outlines a language, thinking, communication skills, and means of influence that support that way of living.** 
 
@@ -37,7 +34,7 @@ Also, communication is only a small part of what I'll be sharing with you. **Non
 #### What I'd like to do now is Give you an idea of how this process evolved. 
 
 [2:02]  
-I would trace its onset to my family moving to Detroit in 1943. Just in time for the race riots, my family moved into the center of where these race riots took place. This was quite an experience for me as a young boy. It was an experience to sit in the house locked in for four days, not able to go out because of the violence in the streets, to find out later that 30 people were killed in our neighborhood in just about a week. 
+I would trace its onset to my family moving to Detroit in 1943. Just in time for the [race riots](https://en.wikipedia.org/wiki/1943_Detroit_race_riot), my family moved into the center of where these race riots took place. This was quite an experience for me, as a young boy. It was an experience to sit in the house, locked in for four days, not able to go out because of the violence in the streets, to find out later that 30 people were killed in our neighborhood in just about a week. 
 
 This stayed with me, that this is a world where people might want to hurt you because of your skin color. When I went to school for the first time in Detroit, Michigan, I learned something else that was rather frightening to me as a young boy. I learned that my last name could be a stimulus for violence. 
 
@@ -46,7 +43,7 @@ First day I was in class when the teacher read off the role and said Marshall Ro
 [3:58]
 **At the same time, I had another powerful learning experience.** Quite a different one, then, to seeing the violence that was going on in the streets. I saw that violence isn't what we human beings are really about. I was fortunate enough to see people exercising compassion under difficult conditions. For example, my grandmother, with whom we lived, was paralyzed. My mother was taking care of her. Each night, one of my uncle's would come to help my mother, and take care of my grandmother. I couldn't wait for him to get there.
 
-I would watch as he took care of my grandmother, as he cleaned her up, gave her various medical treatments that she needed. What struck me is the whole time he was doing this, the beautiful smile on his face. Even though to me as a boy it seemed that the work he was doing was not easy. It was difficult to clean up somebody, give them medications, the whole time he was doing it he had such a beautiful smile on his face. So **I saw this aspect of human beings, human beings who could enjoy contributing to other people's well being.** 
+I would watch as he took care of my grandmother, as he cleaned her up, and gave her various medical treatments that she needed. What struck me is, the whole time he was doing this, the beautiful smile on his face. Even though to me as a boy it seemed that the work he was doing was not easy. It was difficult to clean up somebody, give them medications, the whole time he was doing it he had such a beautiful smile on his face. **I saw this aspect of human beings, human beings who could enjoy contributing to other people's well being.** 
 
 #### Two questions were in me, from this time on, and to this day
 
@@ -83,7 +80,7 @@ Realizing this and seeing that this was the core message and all of the religion
 #### What skills are necessary to live compassionately?
 
 [11:54]  
-Then I saw that the skills that seemed necessary to live compassionately we're quite different than the skills that we were taught. Then when I asked myself, why is that? Then the professor that I mentioned, his words came to me that we were educated, to contribute to the structures we were living, and then these structures, or **structures in which people claim to be superiors and know what's right for others, and to impose what they believe is right on the others, that way of living requires a certain way of thinking, communicating and using power.** I saw that that was the problem, that what created violence was a certain way of thinking, a certain language and certain way of using power. 
+Then I saw that the skills that seemed necessary to live compassionately we're quite different than the skills that we were taught. Then when I asked myself, why is that? Then the professor that I mentioned, his words came to me that we were educated, to contribute to the structures we were living, and then these **structures in which people claim to be superiors and know what's right for others, and to impose what they believe is right on the others, that way of living requires a certain way of thinking, communicating and using power.** I saw that that was the problem, that what created violence was a certain way of thinking, a certain language and certain way of using power. 
 
 Then I asked myself, 
 
@@ -181,7 +178,7 @@ Well, you need to teach them a language in which they get disconnected from thei
 
 * a core component is to educate people with such a static language that uses the verb to be in ways that judge people, their behavior, their appearance, their intelligence. 
 
-In addition to this language that I call a language of domination. It's also important to teach people retributive justice. 
+In addition to this language that I call a language of domination, it's also important to teach people retributive justice. 
 
 * Retributive justice basically implies that if you are judged as bad by the authorities, you deserve to suffer for it to receive punishment. If you are positively judged by authorities is good, then you deserve to be reward. 
 
@@ -203,17 +200,16 @@ This is a radical departure from the language of domination, a language of judgi
 
 Nonviolent communication suggest that we make clear observations that we can tell people when their actions are meeting our needs, and when their actions are not meeting our needs. 
 
-**Another component** of nonviolent communication are feelings, feelings are manifestations of what is happening to our needs. When our needs are not being fulfilled. We feel unpleasant feelings. When our needs are being met. We feel pleasurefull feelings 
+Another component of nonviolent communication are feelings, **feelings are manifestations of what is happening to our needs**. When our needs are not being fulfilled. We feel unpleasant feelings. When our needs are being met. We feel pleasureful feelings 
 
 **A fourth component of nonviolent communication** are requests. When we see that our needs are not being fulfilled, we need to request of ourselves or others, what actions we would like taken to better meet our needs. 
-
 
 #### Four components makeup nonviolent communication
 
 [36:09]  
 The most basic, our **needs**, and then **observations** of what is fulfilling our needs and what isn't. **Feelings** to identify the results of what's happening to our needs now, whether they're being met or not. Our feelings reveal that to us. A **request** what we would like done about our needs that are not being fulfilled. 
 
-These four components are rather different than the language that I was taught. I went to schools for 21 years. In those years of schooling, I was never asked, for example, what my needs were, or what my feelings were. Very rarely was I ever asked what my requests for. The schools I attended were basically schools in which the teachers use the language of judgments. They told you whether what you did was right or wrong, good or bad. So in such an environment, we don't learn a language of life. We learn a language that orients us to what authority wants us to believe and do. 
+These four components are rather different than the language that I was taught. I went to schools for 21 years. In those years of schooling, I was never asked, for example, what my needs were, or what my feelings were. Very rarely was I ever asked what my requests for. The schools I attended were basically schools in which the teachers use the language of judgments. They told you whether what you did was right or wrong, good or bad. In such an environment, we don't learn a language of life. We learn a language that orients us to what authority wants us to believe and do. 
 
 Nonviolent communication shows us both how to make these four components clear to people. 
 
@@ -224,12 +220,12 @@ Nonviolent communication shows us both how to make these four components clear t
 a second question that nonviolent communication directs itself to is **what would make life more wonderful**? that's where our requests come in. We say what we would like to make life more wonderful.
 
 [38:20]  
-So nonviolent communication involves sharing what's alive in us. What would make life more wonderful. To receive the same information from other people, to connect with what's alive in them, and what would make life more wonderful for them. It has been my experience that when we connect at this level, what's alive in each other and what would make life more wonderful for each other, and we avoid the following, we can find ways of getting everyone's needs fulfilled compassionately. 
+So nonviolent communication involves sharing what's alive in us. What would make life more wonderful? To receive the same information from other people, to connect with what's alive in them, and what would make life more wonderful for them. It has been my experience that when we connect at this level, what's alive in each other and what would make life more wonderful for each other, and we avoid the following, we can find ways of getting everyone's needs fulfilled compassionately. 
 
 ## Avoid criticism blame insults or demands
 
 - First, we need to avoid any language that sounds like criticism or blame or insults. 
-- Next, we need to avoid presenting our request to others in which they here as a demand. 
+- Next, we need to avoid presenting our request to others in which they hear as a demand. 
 
 I have found through my working with people over the years, that anytime people hear criticism or demands, makes it very difficult for people to enjoy contributing to one another's well being. 
 
@@ -353,5 +349,3 @@ Now, how can something be so simple and so difficult? Well, it is simple. Nonvio
 * [Paulo Freire And The War On Brasil’s Public Education](https://www.brasilwire.com/paulo-freire-and-the-war-on-brasils-public-education/)
 * [Punished by Rewards? A Conversation with Alfie Kohn](https://www.alfiekohn.org/article/punished-rewards-article/)
 * [Amtssprache (Adolf Eichmann) - Sprache, die Wahlmöglichkeit leugnet -"Müssen" - Marshall Rosenberg](https://www.youtube.com/watch?v=Sk9-3bMAGBw)
-
-Transcribed by https://otter.ai

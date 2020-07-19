@@ -1,8 +1,8 @@
 # How We Communicate with Ourselves - Session #2 - Nonviolent Communication Training - Marshall Rosenberg
+
 **Working with anger, depression, self-judgement, and not giving away our power to cultural programming**
 
-
-> In this session, I would like to focus on how we apply nonviolent communication within ourselves. Nonviolent communication requires quite a transformation from how many of us have been programmed to communicate. Many of us have been programmed to communicate in a language of categorizing people and their actions to judge what they are, for doing what they're doing.
+> In this session, I would like to focus on how we apply nonviolent communication within ourselves.
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
@@ -22,12 +22,15 @@
 
 ## Introduction
 
+Nonviolent communication requires quite a transformation from how many of us have been programmed to communicate. Many of us have been programmed to communicate in a language of categorizing people and their actions to judge what they are, for doing what they're doing.
+
 #### I was working in one culture in Malaysia, that had a radically different language than the one I was taught. 
 
-My interpreter wanted to start the day by having a half hour with me. He said, I need to explain to you some things about our language which may be different than yours, that I'd like you to be aware of. Because if you're not aware of this, it will make my job as an interpreter more difficult. We met for a half an hour before the day started. He said, you know, Marshall, it's important to be aware that in our language, we have no verb to be in the sense of judging what people or their actions are. If you use any language today that judges people or their actions in that way, it will be very hard for me to interpret. I thought of this for a moment. **I thought to myself, how can I go through a day without insulting people?** 
+My interpreter wanted to start the day by having a half hour with me. He said, I need to explain to you some things about our language which may be different than yours, that I'd like you to be aware of. Because if you're not aware of this, it will make my job as an interpreter more difficult. We met for a half an hour before the day started. He said, you know, Marshall, it's important to be aware that in our language, we have no verb to be in the sense of judging what people or their actions are. If you use any language today that judges people or their actions in that way, it will be very hard for me to interpret. I thought of this for a moment. 
 
-(1:39)
-My brain had been programmed to think moment by moment in terms of what will people think of me. Will they judge me right or wrong, good or bad, appropriate or inappropriate? And I was taught to judge other people this way. The thought of a language that didn't contain this, it kind of amazed me. 
+I thought to myself, how can I go through a day without insulting people? **My brain had been programmed to think moment by moment in terms of what will people think of me.**
+
+Will they judge me right or wrong, good or bad, appropriate or inappropriate? And I was taught to judge other people this way. The thought of a language that didn't contain this, it kind of amazed me. 
 
 I said to the interpreter, *"how will you interpret today then if I should say to somebody, you're selfish?"* 
 
