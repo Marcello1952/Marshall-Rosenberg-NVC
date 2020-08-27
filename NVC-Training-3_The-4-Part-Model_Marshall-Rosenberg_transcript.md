@@ -641,7 +641,3 @@ Make a concrete request for action to meet the need just identified. Ask clearly
   > . . . to look at myself without any formula--can one do that? Otherwise you can't learn about yourself obviously. If I say, I am jealous, the very verbalization of that fact, or of that feeling, has already conditioned it. Right? Therefore I cannot see anything further in it. . . .
   > Now the question is: can the mind be free of this egocentric activity? Right? That is really the question, not whether it is so or not. Which means can the mind stand alone, uninfluenced? Alone, being alone does not mean isolation. Sir, look: when one rejects completely all the absurdities of nationality, the absurdities of propaganda, of religious propaganda, rejects conclusions of any kind, actually, not theoretically, completely put aside, has understood very deeply the question of pleasure and fear, and division--the 'me' and the 'not me'--is there any form of the self at all?
 
-
----
-
-Transcribed by https://otter.ai

@@ -7,7 +7,6 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
 
-
 ## Contents
 
 * [Introduction](#introduction)
@@ -18,7 +17,6 @@
 * [Judging yourself for judging yourself](#judging-yourself-for-judging-yourself)
 * [Training ourselves never to give our power away](#training-ourselves-never-to-give-our-power-away)
 * [Resources](#resources)
-
 
 ## Introduction
 
@@ -45,7 +43,7 @@ Actually, I wasn't there to teach them nonviolent communication. Nonviolent comm
 
 ### OJ Harvey - Relationship Between Language and Violence
 
-[OJ Harvey at the University of Colorado](https://neurotree.org/beta/publications.php?pid=490), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions, the more violence in those cultures. 
+[OJ Harvey at the University of Colorado](https://archive.org/stream/conceptualsystem00harv/conceptualsystem00harv_djvu.txt), went around the world and took samples of literature from different cultures to see how often this verb "to be" was used in judging people's actions good, bad, right, wrong, etc. He correlated this with measures of violence - violence toward oneself, violence toward others, and he finds a high correlation. The more cultures think in terms of what people are and their actions, the more violence in those cultures. 
 
 #### We have four friends that can help alert us that we are thinking in a way that contributes to violence.
 
@@ -534,9 +532,11 @@ I hope that we educate ourselves that no matter what structures we're in, we sta
 ## Resources
 
 * [O J. Harvey - Publications - NeuroTree](https://neurotree.org/beta/publications.php?pid=490) - University of Colorado, Boulder
+  * [Conceptual Systems and Personality Organization](https://archive.org/stream/conceptualsystem00harv/conceptualsystem00harv_djvu.txt)
 * [Theologian Walter Wink Website](https://web.archive.org/web/20140104161930/http://walterwink.com/) - web.archive.org
-  * [Transcript of Walter Wink’s Nonviolence for the Violent](https://www.lutheranpeace.org/articles/transcript-of-walter-winks-nonviolence-for-the-violent/) - ([video](https://www.lutheranpeace.org/articles/nonviolence-for-the-violent-walter-wink/))
+  * [Walter Wink – Theology of the Powers – Intro Reading Guide](https://englewoodreview.org/walter-wink-theology-of-the-powers-intro-reading-guide/)
   * [Transforming the powers: the continuing relevance of Walter Wink](https://www.opendemocracy.net/en/transformation/transforming-powers-continuing-relevance-of-walter-wink/)
+  * [Transcript of Walter Wink’s Nonviolence for the Violent](https://www.lutheranpeace.org/articles/transcript-of-walter-winks-nonviolence-for-the-violent/) - ([video](https://www.lutheranpeace.org/articles/nonviolence-for-the-violent-walter-wink/))
 * [Beyond Right and Wrong](https://seedofpeace.org/nvc-introductory-articles/beyond-right-and-wrong/)
 * [Clinical Psychology and Cardiovascular Disease: An Up-to-Date Clinical Practice Review for Assessment and Treatment of Anxiety and Depression](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3195800/)
 * [A Course in Miracles – Chapter 16: The Forgiveness of Illusions – I. True Empathy](https://acourseinmiraclesnow.com/course-miracles-chapter-16-true-empathy/)
@@ -546,5 +546,3 @@ I hope that we educate ourselves that no matter what structures we're in, we sta
 * [On the Punishment and the Protective Use of Force; by Jim Manske](https://nvcnextgen.org/2018/10/on-the-punishment-and-the-protective-use-of-force-by-jim-manske/)
 
 [![](https://i.imgur.com/ABeax3g.png)](https://www.cnvc.org/training/resource/needs-inventory)
-
-Transcribed by https://otter.ai

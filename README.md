@@ -148,7 +148,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * JOYFUL: amused, delighted, glad, happy, jubilant, pleased, tickled
 * EXHILARATED: blissful, ecstatic, elated, enthralled, exuberant, radiant, rapturous, thrilled
 * PEACEFUL: calm, clear headed, comfortable, centered, content, equanimous, fulfilled, mellow, quiet, relaxed, relieved, satisfied, serene, still, tranquil, trusting
-* REFRESHED:, enlivened, rejuvenated, renewed, rested, restored, revived
+* REFRESHED: enlivened, rejuvenated, renewed, rested, restored, revived
 
 #### Feelings when your needs are not satisfied
 
