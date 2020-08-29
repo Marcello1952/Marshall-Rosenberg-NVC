@@ -19,9 +19,9 @@
 * [NVC Model](#nvc-model)
 * [Feelings Inventory](#feelings-inventory)
 * [Human Needs and Human-scale Development](#human-needs-and-human-scale-development)
-* [Marshall Rosenberg NVC Presentations - Audio\Video](#marshall-rosenberg-nvc-presentations---Audio-Video)
-* [NVC Online Practice](#nvc-online-practice)
 * [Resources](#resources)
+  * [NVC Online Practice](#nvc-online-practice)
+  * [Marshall Rosenberg NVC Presentations - Audio\Video](#marshall-rosenberg-nvc-presentations---Audio-Video)
   * [Podcasts](#podcasts)
   * [Research](#research)
 * [Jackal and Giraffe Language](#jackal-and-giraffe-language)
@@ -188,53 +188,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 | **Identity** | sense of belonging, self-esteem, consistency | language, religions, work, customs, values, norms | get to know oneself, grow, commit oneself | places one | belongs to, everyday settings |
 | **Freedom** | autonomy, passion, self-esteem, open-mindedness | equal rights | dissent, choose, run risks, develop awareness | anywhere |
 
-## Marshall Rosenberg NVC Presentations - Audio\Video
-
-* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
-  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
-* [Nonviolent Communication Training Sessions 1-9 - Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
-  * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
-  * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
-  * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
-  * [Session #4 The Dynamics of Empathy](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s) — [Transcript with References](NVC-Training-4_Dynamics-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-4-nonviolent-communication-training-course/id1497893802?i=1000464696651)
-  * [Session #5 Intimate Relationships](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s) — [Transcript with References](NVC-Training-5_Intimate-Relationships_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-5-nonviolent-communication-training-course/id1497893802?i=1000464696436)
-  * [Session #6 Authority: Respect vs Fear](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s) — [Transcript with References](NVC-Training-6_Authority--Respect-vs-Fear_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-6-nonviolent-communication-training-course/id1497893802?i=1000464696653)
-  * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
-  * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
-  * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
-* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
-* [Media - NVCWiki](https://en.nvcwiki.com/index.php/Media)
-* [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
-* [Marshall Rosenberg - Making Life Wonderful 1/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=LnAEF_TU1z4)
-* [Marshall Rosenberg - Making Life Wonderful 2/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=KdFc2B-tZLc)
-* [Marshall Rosenberg - Making Life Wonderful 3/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=Ljh6cwo0Jyw)
-* [Marshall Rosenberg - Making Life Wonderful 4/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=ZFSD5uXsmAw)
-* [Nonviolent Communication NVC International Intensive Training I.I.T. by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
-* [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
-* [NVC Academy](https://www.youtube.com/user/nvcacademy)
-
-## Online Practice and Virtual Training
-
-* [Compassion Course Online](https://nycnvc.wufoo.com/forms/sh1ind50unej3b/) - COURSE STARTS WEDNESDAY JUNE 24
-* [Fundamentals of Compassionate Communication (Online)](https://www.cnvc.org/training/fundamentals-compassionate-communication-online)
-* [Essentials of Nonviolent Communication](https://www.meetup.com/Geneva-NVC-Practice/events/269155244/) - Saturday, May 16, 2020
-* [Upcoming NVC Trainings](https://www.cnvc.org/trainings/practice-groups) - cnvc
-* [NVC Practice Groups](https://www.meetup.com/topics/nvc-practice-group/) - Meetup - Find out what's happening in NVC practice group Meetup groups around the world and start meeting up with the ones near you.
-* [Taste of Compassionate Leadership](http://nvctraining.com/media/_2020/TOCL/TOCL/index.html)
-  > On the fourth Saturday of most months, please join us for a 2-hour session and enjoy a taste of living within our empathic community, as well as a brief training and practice with our trainers. You will learn concrete skills and steps for practicing compassion and leadership in your life. 
-* [NVC Mailing Lists](https://en.nvcwiki.com/index.php/Mailing_lists)
-* [@NVCPractice](https://www.facebook.com/pg/NVCpractice/) - NVC online events, videos and links
-  > This page is about NVC things people can do online or by phone. 
-* [NWCompass Virtual/Remote Trainings](https://nwcompass.org/trainings/#virtual)
-* [Basics of NVC - ONLINE (Starter or Refresher)](http://www.mahakaruna.org.uk/NONVIOLENT-COMMUNICATION/nvc-workshops/One-day-BasicNVC.html)
-
-### Practice Prep 
-
-* [The Exercise – Shifting Toward Compassion](https://www.nycnvc.org/the-exercise) By Thom Bond 
-  > Even though this is an online exercise, you still need a pen or pencil and a piece of paper with a blank side. I created this  exercise so people can have what I call a "Shift". By that I mean experience a "shift" in what you are thinking about and a shift in how you feel. To understand "shift," I have found it helpful to imagine a line like the one below labeled "Connection Continuum". On one end is rage, disconnect and violence... on the other is compassion, connection and peace. In any given moment we are all somewhere on this line (many or most of us in the middle somewhere).
-* [Nonviolent Communication Companion Workbook 2nd Edition](https://cnvc-bookstore.myshopify.com/products/nonviolent-communication-companion-workbook-2nd-edition)
-  > Learning Nonviolent Communication (NVC) has often been equated with learning a whole new language. The NVC Companion Workbook helps you put these powerful, effective communication skills into practice with chapter-by-chapter study of Rosenberg's cornerstone text,NVC: A Language of Life.
-
 ## Resources
 
 [![](https://baynvc.org/wp-content/uploads/2015/06/NVC-Tree-of-Life.jpg)](https://baynvc.org/the-nvc-tree-of-life/)
@@ -265,6 +218,53 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [NVC Informational Handouts](https://nvcnextgen.org/aboutnvc/nvc-handouts/)
 * [Work Collaboratively - Learning Resources](https://workcollaboratively.com/resources/learning-resources/)
 * [NVC Academy](https://nvctraining.com/)
+
+### Online Practice and Virtual Training
+
+* [Compassion Course Online](https://nycnvc.wufoo.com/forms/sh1ind50unej3b/) - COURSE STARTS WEDNESDAY JUNE 24
+* [Fundamentals of Compassionate Communication (Online)](https://www.cnvc.org/training/fundamentals-compassionate-communication-online)
+* [Essentials of Nonviolent Communication](https://www.meetup.com/Geneva-NVC-Practice/events/269155244/) - Saturday, May 16, 2020
+* [Upcoming NVC Trainings](https://www.cnvc.org/trainings/practice-groups) - cnvc
+* [NVC Practice Groups](https://www.meetup.com/topics/nvc-practice-group/) - Meetup - Find out what's happening in NVC practice group Meetup groups around the world and start meeting up with the ones near you.
+* [Taste of Compassionate Leadership](http://nvctraining.com/media/_2020/TOCL/TOCL/index.html)
+  > On the fourth Saturday of most months, please join us for a 2-hour session and enjoy a taste of living within our empathic community, as well as a brief training and practice with our trainers. You will learn concrete skills and steps for practicing compassion and leadership in your life. 
+* [NVC Mailing Lists](https://en.nvcwiki.com/index.php/Mailing_lists)
+* [@NVCPractice](https://www.facebook.com/pg/NVCpractice/) - NVC online events, videos and links
+  > This page is about NVC things people can do online or by phone. 
+* [NWCompass Virtual/Remote Trainings](https://nwcompass.org/trainings/#virtual)
+* [Basics of NVC - ONLINE (Starter or Refresher)](http://www.mahakaruna.org.uk/NONVIOLENT-COMMUNICATION/nvc-workshops/One-day-BasicNVC.html)
+
+#### Practice Prep 
+
+* [The Exercise – Shifting Toward Compassion](https://www.nycnvc.org/the-exercise) By Thom Bond 
+  > Even though this is an online exercise, you still need a pen or pencil and a piece of paper with a blank side. I created this  exercise so people can have what I call a "Shift". By that I mean experience a "shift" in what you are thinking about and a shift in how you feel. To understand "shift," I have found it helpful to imagine a line like the one below labeled "Connection Continuum". On one end is rage, disconnect and violence... on the other is compassion, connection and peace. In any given moment we are all somewhere on this line (many or most of us in the middle somewhere).
+* [Nonviolent Communication Companion Workbook 2nd Edition](https://cnvc-bookstore.myshopify.com/products/nonviolent-communication-companion-workbook-2nd-edition)
+  > Learning Nonviolent Communication (NVC) has often been equated with learning a whole new language. The NVC Companion Workbook helps you put these powerful, effective communication skills into practice with chapter-by-chapter study of Rosenberg's cornerstone text,NVC: A Language of Life.
+
+### Marshall Rosenberg NVC Presentations - Audio\Video
+
+* [Basics of Nonviolent Communication - Marshall Rosenberg](https://www.youtube.com/watch?v=l7TONauJGfc&list=PLPNVcESwoWu6yEIvjB7oPcZui39OoO1ie) - 3 hours - [22 shorts](https://www.youtube.com/playlist?list=PLF45FD9FA2E77FD50))
+  > presentation from a 1 day Introductory Workshop in San Francisco, CA in April, 2000
+* [Nonviolent Communication Training Sessions 1-9 - Marshall Rosenberg](https://www.youtube.com/playlist?list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3) - 9 hours - [Audio Playlist](https://anchor.fm/nvc-archives)
+  * [Session #1 Introduction](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2&t=0s) — [Transcript with References](NVC-Training-1_Introduction_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/introduction-to-nonviolent-communication-by-marshall/id1497893802?i=1000464696656)
+  * [Session #2 How we communicate with ourselves](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=3&t=5s) — [Transcript with References](NVC-Training-2_Communication-with-Ourselves_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-2-nonviolent-communication-training-course/id1497893802?i=1000464696649)
+  * [Session #3 The 4 Part Model](https://www.youtube.com/watch?v=OPx4YLxulTc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=4&t=0s) — [Transcript with References](NVC-Training-3_The-4-Part-Model_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-3-nonviolent-communication-training-course/id1497893802?i=1000464696650)
+  * [Session #4 The Dynamics of Empathy](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s) — [Transcript with References](NVC-Training-4_Dynamics-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-4-nonviolent-communication-training-course/id1497893802?i=1000464696651)
+  * [Session #5 Intimate Relationships](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6&t=0s) — [Transcript with References](NVC-Training-5_Intimate-Relationships_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-5-nonviolent-communication-training-course/id1497893802?i=1000464696436)
+  * [Session #6 Authority: Respect vs Fear](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7&t=0s) — [Transcript with References](NVC-Training-6_Authority--Respect-vs-Fear_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-6-nonviolent-communication-training-course/id1497893802?i=1000464696653)
+  * [Session #7 The Power of Empathy](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8&t=0s) — [Transcript with References](NVC-Training-7_Power-of-Empathy_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-7-nonviolent-communication-training-course/id1497893802?i=1000464696655)
+  * [Session #8 Social Change](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9&t=0s) — [Transcript with References](NVC-Training-8_Social-Change_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-8-nonviolent-communication-training-course/id1497893802?i=1000464696647)
+  * [Session #9 Sincere Gratitude](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=10&t=0s) — [Transcript with References](NVC-Training-9_Sincere-Gratitude_Marshall-Rosenberg_transcript.md) — [Audio Only](https://podcasts.apple.com/us/podcast/session-9-nonviolent-communication-training-course/id1497893802?i=1000464696648)
+* [NonViolent Compassionate Communication A Language of Life Marshall Rosenberg AUDIOBOOK](https://www.youtube.com/watch?v=CBZUpt1bmnM)
+* [Media - NVCWiki](https://en.nvcwiki.com/index.php/Media)
+* [Marshall ROSENBERG and Nonviolent Communication (NVC)](https://www.youtube.com/playlist?list=PLuJ0IoLOWU83eU6ikGbOVU0_oC4f1OBne) (606 videos) Youtube Playlist
+* [Marshall Rosenberg - Making Life Wonderful 1/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=LnAEF_TU1z4)
+* [Marshall Rosenberg - Making Life Wonderful 2/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=KdFc2B-tZLc)
+* [Marshall Rosenberg - Making Life Wonderful 3/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=Ljh6cwo0Jyw)
+* [Marshall Rosenberg - Making Life Wonderful 4/4 - Nonviolent Communication NVC](https://www.youtube.com/watch?v=ZFSD5uXsmAw)
+* [Nonviolent Communication NVC International Intensive Training I.I.T. by original trainer Marshall Rosenberg](https://vimeo.com/ondemand/nvciit) from Pierre PIRONT on July 8, 2017
+* [Popular Marshall Rosenberg & Nonviolent Communication videos](https://www.youtube.com/playlist?list=PLVlZrWIzwDWJSiUDKjBl_4V_jqxSRp32X) (187 videos) Youtube Playlist
+* [NVC Academy](https://www.youtube.com/user/nvcacademy)
 
 ### Podcasts
 
