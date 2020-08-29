@@ -7,6 +7,8 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9)\
 
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -26,7 +28,7 @@
 0:00  
 In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what Nonviolent Communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
 
-In an earlier session, I described the spirituality that Nonviolent Communication was designed to serve. **This process Nonviolent Communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place**. It's a great tool to support our being conscious of what's alive than others, and to hear what's alive and others in a way that makes giving enjoyable. 
+In an earlier session, I described the spirituality that Nonviolent Communication was designed to serve. **This process Nonviolent Communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place**. It's a great tool to support our being conscious of what's alive in others, and to hear what's alive in others in a way that makes giving enjoyable. 
 
 It's a process that helps us to share that information with others, how to be honest and share what's alive in us in a way that enables others to enjoy compassionately giving to us. 
 
@@ -693,7 +695,8 @@ And I hope that these sessions have strengthened your awareness of the preciousn
 
 ---
 
+
 1:05:15  
-This concludes the Nonviolent Communication training course with Marshall Rosenberg. Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web @ www.cnbc.org. 
+This concludes the [Nonviolent Communication Training Course with Marshall Rosenberg](https://nonviolent-communication-sfm.soundstrue.com/). Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web @ www.cnbc.org. 
 
 If you would like to order additional copies of this audio learning series, or to receive a complete catalogue of wisdom teachings for the inner life, please contact [Sounds True](https://www.soundstrue.com/store/).

@@ -6,6 +6,8 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=m6f31ZfEvIs&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=6)\
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -449,6 +451,8 @@ I hope that we are wondering whether we have fully developed our ability **to se
 I'd like us to wonder whether we have fully developed our ability to see that person's humaneness, and that we can communicate with them and show them other ways of getting all needs met, beside the ways that we have been trained to use power within domination systems. 
 
 #### I'd like us all to learn how to use power with people, not power over people.
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
 
 ## Resources
 

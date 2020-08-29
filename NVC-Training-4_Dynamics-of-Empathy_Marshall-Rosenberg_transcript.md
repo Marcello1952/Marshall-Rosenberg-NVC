@@ -5,6 +5,8 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)\
 [NVC Training Course Session #4 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -552,6 +554,8 @@ They sentence us or set us free
 when I speak and when I hear
 let the love light shine through me
 
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Resources
 
 * [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now)
@@ -560,3 +564,4 @@ let the love light shine through me
 * [Martin Buber’s I and Thou](http://aquestionofexistence.com/Aquestionofexistence/Introduction_to_Philosophy/Entries/2012/7/3_Martin_Bubers_I_and_Thou.html)
 * [Culture of Empathy Builder: Carl Rogers](http://cultureofempathy.com/References/Experts/Carl-Rogers.htm)
 * [Words Are Windows (Or They’re Walls)](http://ryanrowe.com/reflections/words-are-windows-ruth-bebermeyer/) a poem by Ruth Bebermeyer
+

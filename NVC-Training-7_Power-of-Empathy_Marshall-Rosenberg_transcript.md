@@ -8,6 +8,8 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=SA2qpg8De-0&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=7)\
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -428,6 +430,8 @@ And once again, my job as the person trying to contribute to reconciliation, I t
 **After about two and a half hours of doing this, both sides could see how helpful it would be to continue to have discussions where they could keep hearing each other's needs and not see each other as enemies**. 
 
 They agreed to continue these kinds of discussions, and it turned out to greatly help the two sides work in harmony with each other.
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
 
 ## Resources
 

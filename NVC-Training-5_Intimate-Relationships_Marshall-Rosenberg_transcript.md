@@ -6,6 +6,8 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5)\
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -443,6 +445,8 @@ His wife was so happy just to hear that much. Coming from him is something she h
 
 Of course, we then went further to help him to see what it would be like to actually express them, and to see that when we express those feelings, those needs which are the most scary for us to express, the not doing it is very costly in the relationship. When we do it vulnerably, without criticism, without demand, and the other person empathically receives it, relationship is going to be powerfully nurtured.
 
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
 
 ## Resources
 

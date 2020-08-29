@@ -7,6 +7,8 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -546,3 +548,6 @@ I hope that we educate ourselves that no matter what structures we're in, we sta
 * [On the Punishment and the Protective Use of Force; by Jim Manske](https://nvcnextgen.org/2018/10/on-the-punishment-and-the-protective-use-of-force-by-jim-manske/)
 
 [![](https://i.imgur.com/ABeax3g.png)](https://www.cnvc.org/training/resource/needs-inventory)
+
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 

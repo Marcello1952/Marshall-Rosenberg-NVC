@@ -8,6 +8,8 @@
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8)\
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -65,7 +67,7 @@ He was convicted by an all white jury. He did not have the kind of lawyer we wou
 
 So my social change project for that year was to help my friend get her son out of prison. This involved many meetings, gathering up a group of citizens, who would work together toward this end. We tried to raise funds to get a different lawyer for him, and we had several other tasks that took a lot of time for our group. 
 
-After a Year of hard work organizing people asking for money, we did get the funds. And we did hire the lawyer of our choice. And we did get another trial for her son. However, he was convicted again, and he was still committed to prison. So a whole year of work, and we weren't successful. And that song came out of a despair that I felt that night. 
+After a Year of hard work organizing people asking for money, we did get the funds. And we did hire the lawyer of our choice. And we did get another trial for her son. However, he was convicted again, and he was still committed to prison. A whole year of work, and we weren't successful. And that song came out of a despair that I felt that night. 
 
 I was in despair, because I said to myself, What if we had gotten him out of prison? He's just one of many, many, people who are being committed to prison unfairly because of our judicial system, which I didn't see treating people of all income levels equally. 
 
@@ -163,7 +165,7 @@ So I called the foundation and the secretary who answered my call recognized me 
 
 I asked for a meeting with the director, and she said, Oh, Dr. Rosenberg, you know how busy he is. I'll ask him if he can find time for you, and I'll call you back. And she called me back about an hour later and said, he does have 20 minutes in between sessions later today. He said he'd be willing to see you. I said, Thank you very much. 
 
-So I said to my colleague, Al Chappelle, I said, I got the meeting with him. We've got 20 minute meeting, but what are you going to do? What are you going to say in that time? He said, Let me handle it. So we drove down, and we were escorted into his office and I politely introduced the two of them. 
+So I said to my colleague, Al Chappelle, I said, I got the meeting with him. We've got 20 minute meeting, but what are you going to do? What are you going to say in that time? He said, Let me handle it. We drove down, and we were escorted into his office and I politely introduced the two of them. 
 
 I said, Dr. Gene Schwelp, President of the foundation, I'd like you to meet my colleague, Al Chappelle. Al Chappelle, This is Dr. Schwelp. 
 
@@ -205,7 +207,7 @@ In other sessions I've pointed out that protective use of force, with children, 
 
 #### This same concept of protective use of force at times is going to be necessary in social change. 
 
-There may be times when an organization is doing things that we believe is causing great damage to people in that region. We may have hoped that if we could communicate with the people who have the power to change, if we could get meetings with them, we could get them to see the damage that's being created. We could help them to see other ways of meeting their needs and our needs, but they may not be willing to give us access to communicating with them. So that might be a situation where we would use a protective use of force. 
+There may be times when an organization is doing things that we believe is causing great damage to people in that region. We may have hoped that if we could communicate with the people who have the power to change, if we could get meetings with them, we could get them to see the damage that's being created. We could help them to see other ways of meeting their needs and our needs, but they may not be willing to give us access to communicating with them. That might be a situation where we would use a protective use of force. 
 
 The protective use of force differs from the punitive use of force in our thinking, and then the intent of our strategies. The difference in our thinking is this when we use the protective use of force, we don't see the other person as evil or bad and deserving of punishment. Our focus is on how we can stop what is creating the damage without being violent in the process of creating the stopping of the damage. Our thinking is not how bad people are who are doing the damage. 
 
@@ -286,7 +288,9 @@ Our judicial system is based on this way of thinking that there are people who k
 
 > Restorative justice has as its purpose, to find ways of getting everyone's needs met so that peace and harmony can be retrieved when pain and conflict exists between parties. 
 
-This kind of spirituality that looks for ways of getting everybody's needs met, that doesn't judge people as evil and deserving of punishment. It looks at a three fold situation. 
+This kind of spirituality that looks for ways of getting everybody's needs met, that doesn't judge people as evil and deserving of punishment. 
+
+It looks at a three fold situation. 
 
 #### There's three parties that have to be dealt with whenever somebody needs have not been met, through a crime of some sort. 
 
@@ -325,11 +329,11 @@ They believe that a person would only act that way if something has disconnected
 
 #### I'd like to describe now some work that I do in restorative justice, and show how you can restore peace and harmony between warring parties. 
 
-When we start with a different spirituality, one that implies that we all enjoy contributing to one another's well being, unless something disconnects us. So what we need to do, to restore peace and harmony is **reconnect people with what they need to be conscious of, that will help them naturally enjoy contributing to people's well being**, rather than to act in ways that are harmful to people. 
+When we start with a different spirituality, one that implies that we all enjoy contributing to one another's well being, unless something disconnects us. What we need to do, to restore peace and harmony is **reconnect people with what they need to be conscious of, that will help them naturally enjoy contributing to people's well being**, rather than to act in ways that are harmful to people. 
 
 For example, if I'm working with a father, who has sexually molested his daughter, and unfortunately, I have the opportunity to do this restorative justice on several occasions because this unfortunately happens quite a bit. 
 
-Where fathers get disconnected from their selves in a way that they do things that can be very harmful to even the people they care for the most. So what I do in restorative justice of this kind is similar to what I described in the healing work that I talked about in previous session. 
+Where fathers get disconnected from their selves in a way that they do things that can be very harmful to even the people they care for the most. What I do in restorative justice of this kind is similar to what I described in the healing work that I talked about in previous session. 
 
 I get the person who has been wounded, in this case the daughter, together with the father and I try to engage in creating the connection that will help restore peace and harmony between the two parties. 
 
@@ -364,6 +368,10 @@ In my experience very often just the empathy that took place where the father em
 Another restorative justice work. If a person's house was destroyed by someone angry at them, after we have gone through helping each side, hear each other's needs empathically there might be more that needed to be done to restore justice. 
 
 The person whose house was destroyed, may request support in rebuilding the house or getting financial support for rebuilding the house. Whatever it is, that is mutually agreed upon, because everyone has the consciousness that what we want to do is restore peace and harmony, not to punish the bad person in a way they deserve to be punished.
+
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 
 ## Resources
 

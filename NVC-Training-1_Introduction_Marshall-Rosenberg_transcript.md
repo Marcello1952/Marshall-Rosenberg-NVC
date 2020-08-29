@@ -7,6 +7,8 @@
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=1)\
 [Introduction Nonviolent Communication - Training Course - Marshall Rosenberg](https://www.youtube.com/watch?v=GZnXBnz2kwk&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=1)
 
+Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 ## Contents
 
 * [Introduction](#introduction)
@@ -342,6 +344,10 @@ Because it basically focuses on these two questions that I described what's aliv
 Now, how can something be so simple and so difficult? Well, it is simple. Nonviolent communication is a more natural way of being. It simply says, Let's stay connected to life, the life within us. Like any other form of life, whether it be a tree or animals, life requires being connected enough to live to know how to fulfill our needs. So in that sense, Nonviolent Communication is a very simple process. But the second thing that people say about is how difficult it can be. The reason that it's so difficult is that it requires liberating ourselves from centuries of education that have buried what's alive in us behind cultural education that is designed to make us nice Dead people, not compassionate living people.
 
 **I look forward in our subsequent sessions to seeing how we can connect with Nonviolent Communication in a way that helps us to live our lives more fully.**
+
+
+#### Buy this course at [Soundstrue.com](https://nonviolent-communication-sfm.soundstrue.com/)!!! 
+
 
 ## Resources
 
