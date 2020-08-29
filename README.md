@@ -190,8 +190,6 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 
 ## Resources
 
-[![](https://baynvc.org/wp-content/uploads/2015/06/NVC-Tree-of-Life.jpg)](https://baynvc.org/the-nvc-tree-of-life/)
-
 * [NVC Wiki](https://en.nvcwiki.com/index.php/Main_Page) - a wiki serving the global Nonviolent Communication (NVC) network. 
   * [Needs vs. Strategies exercise](https://en.nvcwiki.com/index.php/Needs_vs._Strategies_exercise)
   * [Requests vs. Demands exercise](https://en.nvcwiki.com/index.php/Requests_vs._Demands_exercise)
