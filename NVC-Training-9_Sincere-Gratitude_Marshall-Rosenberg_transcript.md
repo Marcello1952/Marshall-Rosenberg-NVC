@@ -1,6 +1,6 @@
 # Role of Sincere Gratitude - Session #9 - Nonviolent Communication Training - Marshall Rosenberg
 
-> In this session, I'll be talking about the role that sincere gratitude plays, in helping us to remember what nonviolent communication is intended to serve, and to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
+> In this session, I'll be talking about the role that sincere gratitude plays, in helping us to remember what Nonviolent Communication is intended to serve, and to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
 
 [Nonviolent Communication 9 Marshall Rosenberg](https://www.youtube.com/watch?v=3JXcbtjIzas&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=9)
 
@@ -24,9 +24,9 @@
 ## Introduction
 
 0:00  
-In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what nonviolent communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
+In this session, I'll be talking about the role that sincere gratitude plays in helping us to remember what Nonviolent Communication is intended to serve. And to help us to maintain the energy that it takes to stay compassionate in a world that often makes that quite challenging. 
 
-In an earlier session, I described the spirituality that nonviolent communication was designed to serve. **This process nonviolent communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place**. It's a great tool to support our being conscious of what's alive than others, and to hear what's alive and others in a way that makes giving enjoyable. 
+In an earlier session, I described the spirituality that Nonviolent Communication was designed to serve. **This process Nonviolent Communication has great power to enrich our lives, when it is our intention to create the connections necessary for compassionate giving to take place**. It's a great tool to support our being conscious of what's alive than others, and to hear what's alive and others in a way that makes giving enjoyable. 
 
 It's a process that helps us to share that information with others, how to be honest and share what's alive in us in a way that enables others to enjoy compassionately giving to us. 
 
@@ -55,7 +55,7 @@ By celebrating life, **I mean that we let people know how our needs have been fu
 ## Expressing Gratitude
 
 4:17  
-So the difference between nonviolent communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in nonviolent communication. 
+So the difference between Nonviolent Communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in Nonviolent Communication. 
 
 #### Gratitude is expressed by saying three things that allow the other person to see how their actions have enriched our lives. 
 
@@ -71,7 +71,7 @@ We have talked about this in many other sessions, how to express clear observati
 
 But now we're talking about actions that have contributed to our well being and needs that have been fulfilled, and the pleasureful things that follow these needs having been fulfilled. 
 
-The form that is used in nonviolent communication is clear on observations, feelings needs. 
+The form that is used in Nonviolent Communication is clear on observations, feelings needs. 
 
 It's not in the form of compliments which judge people as that was a good thing that you did. You're a kind person, you are very attractive. 
 
@@ -91,11 +91,11 @@ In my trainings, I do some exercises that not only show people how to express gr
 
 One of these exercises, **I ask people to think of a gratitude they would have loved to have received from somebody but they didn't**. 
 
-Then we use that as a chance to practice what it would have sounded like if that person would have known how to express the gratitude in a nonviolent communication manner. 
+Then we use that as a chance to practice what it would have sounded like if that person would have known how to express the gratitude in a Nonviolent Communication manner. 
 
 That is, what would they have said, to *make clear what we did*, and *how they felt as a result* of our doing this, and *what was needed that was met*. 
 
-After the people have written down what the gratitude would have sounded like, had it been expressed in a nonviolent communication way, by the other person.
+After the people have written down what the gratitude would have sounded like, had it been expressed in a Nonviolent Communication way, by the other person.
 
 8:37  
 I asked them to imagine going to that person and doing the following. This might require a bit of imagination on your part, particularly if the other person is no longer alive. I say, whether the person is alive or not, **imagine going to that person and telling them that you were in a workshop that asked you to write down a gratitude that you would have loved to have received and didn't**. 
@@ -110,13 +110,13 @@ Then, after you imagine saying that to the person, then ask them this question. 
 
 To do that we need to be conscious of the many things that go on, that keep gratitude from being expressed when it is desperately needed to maintain our energy for living a life of compassion. 
 
-Then when people have had a chance to do those two things, I asked them to read off both what the gratitude would have sounded like, had it been expressed in a nonviolent communication manner. And we look at the reasons why people believe they didn't receive the gratitude. 
+Then when people have had a chance to do those two things, I asked them to read off both what the gratitude would have sounded like, had it been expressed in a Nonviolent Communication manner. And we look at the reasons why people believe they didn't receive the gratitude. 
 
 **Then I asked the people to think of a gratitude they themselves have not expressed** that they would really feel horrible if they didn't get a chance to express it to the other person before that person died. 
 
 I ask them to write down the gratitude in a way that communicates the three things we're trying to create. 
 
-**When we express gratitude in a nonviolent communication way**:
+**When we express gratitude in a Nonviolent Communication way**:
 * make it clear to the other person what they did that enriched your life
 * how you feel right now, when you think about that
 * and what need of yours was fulfilled. 
@@ -356,7 +356,7 @@ We're afraid that it's going to embarrass people, so we don't express it.
 
 #### It's not only important to express gratitude, it's also very important to receive it well. 
 
-And I find out this is one of the hardest things for people to do in a way that's consistent with nonviolent communication principles. 
+And I find out this is one of the hardest things for people to do in a way that's consistent with Nonviolent Communication principles. 
 
 Nonviolent communication suggests that we empathically commit with any message that's coming at us, that we hear the feelings and needs be expressed by the person. 
 
@@ -505,7 +505,7 @@ Why is it so hard to believe?
 ## The Gratitude Book
 
 46:44  
-Given that both giving and receiving gratitude is so important in maintaining our consciousness of the spirituality that is necessary for nonviolent communication to have its power. 
+Given that both giving and receiving gratitude is so important in maintaining our consciousness of the spirituality that is necessary for Nonviolent Communication to have its power. 
 
 I think it's very important to look at our lives and see, are we creating the space to do it? 
 
@@ -526,7 +526,7 @@ Now, what do I put in that book?
 
 It might be something I did that enriched just my life, or it might have been something I did that contributed also to someone else's well being. 
 
-What I like to do is write down what it takes to help me see those three things, that are central to gratitude, as expressed in a nonviolent communication way. 
+What I like to do is write down what it takes to help me see those three things, that are central to gratitude, as expressed in a Nonviolent Communication way. 
 
 I write down something that helps me be clear what did I do that I want to celebrate? 
 
@@ -553,7 +553,7 @@ And then I draw flower, just to slow me down so I can just let in what they did 
 And then I asked myself this question, **have I expressed clearly to that person, just how much my life was enriched by that**?
 
 50:47  
-And very often I find that I either didn't, or I expressed it in a lazy nonviolent communication way. Now, here's how you express gratitude and a lazy nonviolent communication way. You say thank you, and sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did, and can sense perhaps how we feel and what need was met. 
+And very often I find that I either didn't, or I expressed it in a lazy Nonviolent Communication way. Now, here's how you express gratitude and a lazy Nonviolent Communication way. You say thank you, and sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did, and can sense perhaps how we feel and what need was met. 
 
 There are some gratitudes that I want to be sure the person really got clear just how much what they did enriched my life. 
 
@@ -628,7 +628,7 @@ And I tell people to look at their work setting, are they expressing gratitude a
 
 In many of the places that I work, they just can't even imagine it. For example, I was working in a big business in Madison, Wisconsin. 
 
-After three days of showing them how nonviolent communication could help them in dealing with all the conflicts they were having within departments and between departments, toward the end, we did a little session on gratitude.
+After three days of showing them how Nonviolent Communication could help them in dealing with all the conflicts they were having within departments and between departments, toward the end, we did a little session on gratitude.
 
 After showing them how to express and receive gratitude in a Nonviolent communication way. 
 
@@ -694,6 +694,6 @@ And I hope that these sessions have strengthened your awareness of the preciousn
 ---
 
 1:05:15  
-This concludes the nonviolent communication training course with Marshall Rosenberg. Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web @ www.cnbc.org. 
+This concludes the Nonviolent Communication training course with Marshall Rosenberg. Music by Stephen McNamara. For more information on the work of Marshall Rosenberg, please visit the worldwide web @ www.cnbc.org. 
 
 If you would like to order additional copies of this audio learning series, or to receive a complete catalogue of wisdom teachings for the inner life, please contact [Sounds True](https://www.soundstrue.com/store/).

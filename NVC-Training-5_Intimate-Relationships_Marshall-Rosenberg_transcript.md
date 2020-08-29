@@ -1,6 +1,6 @@
 # Intimate Relationships - Session #5 - Nonviolent Communication Training Course - Marshall Rosenberg
 
-> In this session, I'll be talking about how nonviolent communication can support us in deepening our intimate relationships. 
+> In this session, I'll be talking about how Nonviolent Communication can support us in deepening our intimate relationships. 
 
 [Nonviolent Communication 5 Marshall Rosenberg](https://www.youtube.com/watch?v=L96Fo2R7E38&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5)
 
@@ -21,7 +21,7 @@
 ## Introduction
 
 0:01  
-In this session, I'll be talking about how nonviolent communication can support us in deepening our intimate relationships. Let's start with a dialogue that is likely to be heard in almost any intimate relationship, at least variations of it.
+In this session, I'll be talking about how Nonviolent Communication can support us in deepening our intimate relationships. Let's start with a dialogue that is likely to be heard in almost any intimate relationship, at least variations of it.
 
 One person says to the other, do you love me?
 
@@ -29,13 +29,15 @@ And the other person said, Oh, yes, of course. And the first person said, but I 
 
 The first person said, then why did it take you so long to respond? 
 
-This question is very important, you know, "do you love me?" And it's very hard to answer because we very often don't get clear in intimate relationships what we really mean by that word love. 
+This question is very important, "do you love me?" And it's very hard to answer because we very often don't get clear in intimate relationships what we really mean by that word love. 
 
 In an earlier session, I mentioned how some people use the word love as a feeling and emotion. And if they do that, it's pretty hard to know how to answer that question without reference to a specific time and place because feelings change every few seconds. 
 
 ## Love as a Need
 
-In nonviolent communication, we use the word love as a need, and a very important need. What's very important is to know how to manifest this need, to contribute to that need being met, in people that we care for, and that we have intimate relationships with. I have found in working with couples for many years, the best way that we can really meet people's need for love is to do two things. 
+In Nonviolent Communication, we use the word love as a need, and a very important need. What's very important is to know how to manifest this need, to contribute to that need being met, in people that we care for, and that we have intimate relationships with. 
+
+I have found in working with couples for many years, the best way that we can really meet people's need for love is to do two things. 
 
 First of all, express those needs within us those messages within us that are the hardest to express the most scary to express. When we have that ability to share that which is not easy to express, we get a chance to get these needs fulfilled. But if we are so frightened of expressing these needs that we don't say anything that creates barriers in the relationship. It's very difficult for many reasons for people to express these needs that need to be expressed in intimate relationships, and when they do express the need, very often it's done with an energy that provokes the very opposite of what we would really like. 
 
@@ -56,7 +58,7 @@ When we have this consciousness that our needs are a gift, we then express them 
 
 #### So the intent behind expressing our needs in an intimate relationship, it's very important that we see the need as a gift. 
 
-And then there's two other things that are very important in expressing needs. We follow the need, that isn't being met that we would like to have fulfilled, with a clear request. If we simply express the need without the request, it often leaves the other person in a position either of not being clear what we want, or with the idea that we expect them to know what we want them to do about it. 
+There's two other things that are very important in expressing needs. We follow the need that isn't being met, that we would like to have fulfilled, with a clear request. If we simply express the need without the request, it often leaves the other person in a position either of not being clear what we want, or with the idea that we expect them to know what we want them to do about it. 
 
 For example, if a partner one says to partner two, I'm very lonely right now, I really need some connection, and then stops, and doesn't say anything about what they're wanting at that moment from the other person. It's very easy for the other person to hear that. This person has an expectation of me, I'm supposed to know what it is they want right now. 
 
@@ -109,7 +111,7 @@ There's a poem that we used to say in my neighborhood when we were children. If 
 
 > sticks and stones can break my bones but names can never hurt me. 
 
-That was a very important thing to learn that what other people say or do can't hurt us. It's how we take it. If somebody says 'no' to us, that can't make us feel bad, it's how we interpret the no. We lose this consciousness, we lose the wisdom of that poem, as we get educated in a way that makes interdependence not what happens in intimate relationships, but codependence, where people take on responsibility for each other's happiness. 
+That was a very important thing to learn that what other people say or do can't hurt us. It's how we take it. If somebody says 'no' to us, that can't make us feel bad, it's how we interpret the no. We lose this consciousness, we lose the wisdom of that poem, as we get educated in a way that makes interdependence not what happens in intimate relationships, but co-dependence, where people take on responsibility for each other's happiness. 
 
 That requires giving up your own honesty, your own integrity, you must always do what the other person wants to make them happy. That soon makes the person that we have the deepest relationship with, the biggest burden of all. 
 
@@ -128,7 +130,7 @@ To remind myself off of this, I keep a picture of John Wayne in my office. It sh
 
 One of the messages that is very important to know how to say in an intimate relationship is no. 
 
-Especially when the person that we care for has some need that seems very strong at the moment and they're in some pain. But things within us are going on such that we can't really give with the kind of energy that nonviolent communication recommends that we give out of that is that we do it totally willingly. We're not giving in or giving up. 
+Especially when the person that we care for has some need that seems very strong at the moment and they're in some pain. But things within us are going on such that we can't really give with the kind of energy that Nonviolent Communication recommends that we give out of that is that we do it totally willingly. We're not giving in or giving up. 
 
 **How do we say no under these very difficult conditions?** 
 
@@ -146,7 +148,7 @@ At times this can be non verbally communicated, they can see in our eyes that we
 
 Sometimes we might express it verbally, we might say, so you're really lonely this evening and really need some connection?
 
-That's an important step in saying no to begin by, either verbally or non verbally communicating that we are with them in the need, we see what's going on in them. 
+That's an important step in saying no to begin by, either verbally or non verbally communicating that we are with them, in the need, we see what's going on in them. 
 
 If we're so tense about the fact that we are not wanting to do what the other person is asking us to do that the first thing they see in our eyes is some tension or fear, they can easily mistake that we have received their need not as a gift, but as something negative. 
 
@@ -212,7 +214,7 @@ This is very important to work out in intimate relationships, how each party can
 
 ### Festival of Pain
 
-I'd like to do a song now of what happens when we don't express our feelings and needs honestly. And what can happen when our partner does express their feelings and needs openly and honestly, but we don't receive it. empathically when we do that, the person that we love the most, could become a festival of pain, as described in this song.
+I'd like to do a song now of what happens when we don't express our feelings and needs honestly. What can happen when our partner does express their feelings and needs openly and honestly, but we don't receive it. empathically when we do that, the person that we love the most, could become a festival of pain, as described in this song.
 
 26:19  
 Yes I know that I can always count on you
@@ -260,7 +262,7 @@ It's very important when we are in a good deal of pain about something, that we 
 
 Then if the person goes from the pain to the request, I have suggested an activity to many couples that have consulted with me and who are interested in how can we deepen our relationship? 
 
-#### I've said, Let me suggest a scary exercise for you. 
+#### Let me suggest a scary exercise for you. 
 
 Let me suggest that in your lives that you give space, regular space, to dealing with a scary question. 
 
@@ -290,7 +292,7 @@ Well, some people would deny their needs and feel like "oh my goodness, I have t
 
 If they do that, and continue with the sexual act, when they're not really into it, the other person is highly likely to be sensing that they're not into it and It's probably not going to be a very enjoyable experience for both people. If it is for one to the one who gave in. It's going to have some association with sexuality that both people will pay for it because if we give up our needs for our partner, in any aspect of relationships, everybody pays for it eventually. 
 
-If the people are courageous and skilled, honesty is nonviolent communication supports the person who was reading, but again, start with empathic response to the other person either non verbally just showing by look that we see the other person is reaching out to us sexually. Or might just say words that show that looks like you'd like some real closeness and love on it and the other person say Yeah.
+If the people are courageous and skilled, honesty is Nonviolent Communication supports the person who was reading, but again, start with empathic response to the other person either non verbally just showing by look that we see the other person is reaching out to us sexually. Or might just say words that show that looks like you'd like some real closeness and love on it and the other person say Yeah.
 
 36:02  
 And now comes how to say no, honestly, as we've talked about. A person might say, I'm torn right now, I really would like to get into it with you. And yet at the moment, I'm not really there. I'm kind of caught in this article I'm reading. How would it be for you if we get into this in about 20 minutes? That would be how to express oneself even in the middle of intimacy, when our needs may not coincide at that moment when the needs are not the problem there. 
@@ -333,7 +335,7 @@ Many people carry the idea that there are certain jobs that the man should do ce
 41:03  
 And it's done out of an energy that comes when we see that we are enriching life. And it's meeting our need to enrich life so that we never feel as though we are sacrificing ourself for the other people. 
 
-When I do empathy training for women, many of the women that I work with find it very hard to hear their partner's needs without losing their own needs. It says no, other people's needs are more important to them. 
+When I do empathy training for women, many of the women that I work with find it very hard to hear their partner's needs without losing their own needs, other people's needs are more important to them. 
 
 I often recommend to such women an article written by the columnist Ellen Goodman. When [she warned women be careful about learning how to empathize better with other people's needs](http://archive.boston.com/bostonglobe/editorial_opinion/oped/articles/2009/05/22/whats_so_bad_about_empathy/). Gotta be sure as women, she says, that we don't empathize at the cost of losing connection with ourselves. She warns that given our cultural training as women, it's very easy to lose ourselves in other people's needs. 
 
@@ -374,7 +376,7 @@ It took us about an hour just to help them get clear what their needs were becau
 
 He said, well, the problem with her is that she's too... and she was coming back with a similar diagnosis of her husband. 
 
-They hadn't been trained in nonviolent communication. They weren't conscious that whenever we tell people what we think about them, that's not a very effective way of getting our needs met. With my help, they finally got their needs clear. At that point, they came to a resolution in this case they chose to stay together. 
+They hadn't been trained in Nonviolent Communication. They weren't conscious that whenever we tell people what we think about them, that's not a very effective way of getting our needs met. With my help, they finally got their needs clear. At that point, they came to a resolution in this case they chose to stay together. 
 
 I have worked with other couples that when they really got their needs clear, they did see that a divorce might be the best strategy for both of them. But of course when you get to a resolution, that way, it is a far different resolution and is going to be far more fulfilling to both people, than if we go directly to strategies and don't really make sure that the strategy is a way of getting everybody's needs met. 
 
@@ -382,9 +384,9 @@ In fact, one couple that I worked with, after my helping them both get clear wha
 
 Now a divorce arrived at, in that way, is going to be quite different for the children than a divorce arrived at through the usual adversarial procedures. 
 
-In one city, in the United States, in the family court, **we have trained social workers to be able to use nonviolent communication in helping couples going through a divorce**, to come to some resolution in the divorce settlement that everybody's needs. 
+In one city, in the United States, in the family court, **we have trained social workers to be able to use Nonviolent Communication in helping couples going through a divorce**, to come to some resolution in the divorce settlement that everybody's needs. 
 
-In this situation, couples going through a divorce, then have an option. They can go through the usual adversarial procedures, or they can request to go through a three hour mediation session with social workers who were trained in using nonviolent communication. 
+In this situation, couples going through a divorce, then have an option. They can go through the usual adversarial procedures, or they can request to go through a three hour mediation session with social workers who were trained in using Nonviolent Communication. 
 
 I had lunch one day with the judges in this family court program. They were very pleased they told me with what it did for couples who chose to go through the mediation session, so that everybody's needs were clarified, in the process, and an attempt found to meet everybody's needs. 
 

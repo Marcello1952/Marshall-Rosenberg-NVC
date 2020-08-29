@@ -1,8 +1,8 @@
 # Social Change - Session #8 - Nonviolent Communication Training - Marshall Rosenberg
 
-> In this session, I'll be focusing on how nonviolent communication can support our social change efforts. In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
+> In this session, I'll be focusing on how Nonviolent Communication can support our social change efforts. In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
 
-> Let's take a look at social change, which for me, to a large extent, shows how to use nonviolent communication when we are communicating with gangs. Now some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. These other gangs, don't call themselves gangs. These other gangs that I'm worried about, some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations. What I mean by these gangs that I'm worried about our organizations of people that have a big impact over our lives, and who are doing some things that I think contribute to great violence on the planet and great suffering. 
+> Let's take a look at social change, which for me, to a large extent, shows how to use Nonviolent Communication when we are communicating with gangs. Now some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. These other gangs, don't call themselves gangs. These other gangs that I'm worried about, some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations. What I mean by these gangs that I'm worried about our organizations of people that have a big impact over our lives, and who are doing some things that I think contribute to great violence on the planet and great suffering. 
 
 [Nonviolent Communication 8 Marshall Rosenberg](https://www.youtube.com/watch?v=VKJ1BCXKt_w&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=8)
 
@@ -18,13 +18,13 @@
 
 ## Introduction
 
-In this session, **I'll be focusing on how nonviolent communication can support our social change efforts**. 
+In this session, **I'll be focusing on how Nonviolent Communication can support our social change efforts**. 
 
 In previous sessions, I've shown how social change can be used to communicate with ourselves. We've also looked at how it can be used to communicate with others and our family relationships and our work relationships. 
 
 ### Gangs that don't call themselves gangs
 
-Let's take a look at social change, which for me, to a large extent, shows how to use nonviolent communication when we are communicating with gangs. Some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. 
+Let's take a look at social change, which for me, to a large extent, shows how to use Nonviolent Communication when we are communicating with gangs. Some gangs call themselves gangs, street gangs. I'm not so worried about these gangs and the damage that they might be doing. But I am concerned about some other gangs. 
 
 These other gangs, don't call themselves gangs. These other gangs that I'm worried about, *some of them call themselves governments. Some of the gangs that I'm worried about, call themselves corporations*. 
 
@@ -32,7 +32,7 @@ What I mean, by **these gangs that I'm worried about, are organizations of peopl
 
 So how can each of us develop our own power, become conscious of our power and use it to transform these structures, these organizations so that they serve life rather than threaten life. 
 
-Now, this can be quite a challenge because the spirituality, language, and means of influence that, these gangs that I'm worried about perpetuate, make it very hard for us to become conscious of our power and to use it. 
+Now, this can be quite a challenge because the spirituality, language, and means of influence that these gangs that I'm worried about perpetuate, make it very hard for us to become conscious of our power and to use it. 
 
 The gangs that I'm worried about control, through punishment and reward, and try to get their own interest met, at the cost sometimes of the environment, sometimes through exploitive labor practices, sometimes through the use of violence, to get employees to do as they would like. 
 
@@ -71,7 +71,7 @@ I was in despair, because I said to myself, What if we had gotten him out of pri
 
 I was also in despair, because even if we have gotten him out of prison, even if we spent our whole lives getting all of the others out of prison who have been treated unfairly, that wouldn't be changing the structures that are creating the unfairness. 
 
-I say this, because nonviolent communication helps us to differentiate between objectives which are to undo the damage created by the systems, but to recognize how different that is than changing the systems, that create the problem. 
+I say this, because Nonviolent Communication helps us to differentiate between objectives which are to undo the damage created by the systems, but to recognize how different that is than changing the systems, that create the problem. 
 
 **Nonviolent communication helps us to get clear what our social change objective is**. 
 
@@ -92,14 +92,14 @@ Well, the story goes this way. **When do we stop pulling the babies out? And whe
 
 We are confronted with many such situations today. Structures are creating enormous pain, from economic structures, to digital structures, governmental structures. The pain created by these structures is immense. 
 
-So we can use nonviolent communication to heal the people hurt by these structures. 
+So we can use Nonviolent Communication to heal the people hurt by these structures. 
 
-Or we can use nonviolent communication to go upstream and to connect with the people who are creating and supporting the structures that do the violence, and use nonviolent communication to show these people other ways of serving other than those which are oppressing people. 
+Or we can use Nonviolent Communication to go upstream and to connect with the people who are creating and supporting the structures that do the violence, and use Nonviolent Communication to show these people other ways of serving other than those which are oppressing people. 
 
-#### So one way that nonviolent communication support us, is to help us to look inside and see how do I want to meet this important need of mine, to serve life.
+#### One way that Nonviolent Communication support us, is to help us to look inside and see how do I want to meet this important need of mine, to serve life.
 
 11:30  
-To be conscious that we have power to serve life at many levels, healing the people who are oppressed by present circumstances, or we can go upstream, as the story identifies. Upstream being the structures that are creating the pain, and we can use our nonviolent communication, consciousness and skills to conduct With the people creating the damage and positively compassionately influencing them to transform the structure so that they serve life for all rather than oppress people. 
+To be conscious that we have power to serve life at many levels, healing the people who are oppressed by present circumstances, or we can go upstream, as the story identifies. Upstream being the structures that are creating the pain, and we can use our Nonviolent Communication, consciousness and skills to conduct With the people creating the damage and positively compassionately influencing them to transform the structure so that they serve life for all rather than oppress people. 
 
 ## Making Purposeful Requests
 
@@ -122,13 +122,13 @@ That's if we want to bring about social change nonviolently, we want the change 
 
 Of course, violent social change basically tries to get rid of those people in power and replace them with other people. 
 
-Now to exercise our social change power using nonviolent communication to influence key people requires that we can get access to these people.
+Now to exercise our social change power using Nonviolent Communication to influence key people requires that we can get access to these people.
 
 Getting access is often a good use of our social change ability, to get access to people in power that we may want to communicate with, we may need to influence people who have power to get us that access to do so. It may be that we're going to need a pretty good team, a large team to work with us to get all the transformations of consciousness necessary that we're looking for. 
 
-#### So we need to use nonviolent communication to organize a team of people who share our perspective. 
+#### We need to use Nonviolent Communication to organize a team of people who share our perspective. 
 
-An example of how nonviolent communication can support social change efforts occurred in a project I was involved in. We wanted to get a school created in one city, a school where we wanted to demonstrate we could educate those students who were being kicked out of school or pushed out of school. 
+An example of how Nonviolent Communication can support social change efforts occurred in a project I was involved in. We wanted to get a school created in one city, a school where we wanted to demonstrate we could educate those students who were being kicked out of school or pushed out of school. 
 
 **We wanted to show that if we understood the students, and understood their needs, how we could create a school structure in which they could learn**, as well as any other students,  and they could do so with less violence than was seen in many public schools. However, this school required a lot of cooperation for us to create it. We had to first of all, enlist people to work with us on this project. We had to find some people who would be willing to be teachers in the school, and then we had to train them.
 
@@ -193,13 +193,13 @@ How to be very clear very quickly, about what we want, so as to stimulate a dial
 
 Using precious time in that way, increases the likelihood that we will connect in a way and get what we would like for our social change efforts. Even if we don't, by using the time in that way, we can even learn, from a no, what kept the person from wanting to support our project, and this can help us in subsequent efforts. 
 
-Nonviolent communication can be very helpful to us, because **nonviolent communication helps us to be very clear very quickly, about what our present request is of people**, instead of just talking at them and trying to sell them. 
+Nonviolent communication can be very helpful to us, because **Nonviolent Communication helps us to be very clear very quickly, about what our present request is of people**, instead of just talking at them and trying to sell them. 
 
 Nonviolent communication helps us to quickly create a dialogue in which people get a chance to ask for what they need to know, to decide whether they want to give us what we came for. 
 
 ## Protective use of force
 
-Sometimes in our social change efforts, **force may be necessary** to protect ourselves from the we see organizations are doing. Of course, using nonviolent communication, whether we use force with our children, or with organizations, **we want to be sure that it's the protective use of force and not the punitive use of force**. 
+Sometimes in our social change efforts, **force may be necessary** to protect ourselves from the we see organizations are doing. Of course, using Nonviolent Communication, whether we use force with our children, or with organizations, **we want to be sure that it's the protective use of force and not the punitive use of force**. 
 
 In other sessions I've pointed out that protective use of force, with children, might be using some force to stop them from doing something that's harmful to themselves or others. But we do this stopping, not with punitive efforts, to punish them, but just to stop a behavior that we are concerned about, until we can communicate with the child to find a more effective way of meeting their need and our need. 
 
@@ -236,7 +236,7 @@ So we met and looked at what actions could we take that would protect the childr
 
 After much discussion, we decided to organize a strike, and take the children out of school. By doing that they would be protecting the children from a continuation of the damage they saw happening in the school. Their purpose in doing this was not to punish anybody, purely to protect their children until they could have a discussion with the people in the school, that they hoped would end with changing some of the procedures in the school that they felt were doing damage to the children. 
 
-#### So that was a nonviolent communication, social change project, to protect the children from policies that they saw destroying the spirit of their children. 
+#### That was a Nonviolent Communication, social change project, to protect the children from policies that they saw destroying the spirit of their children. 
 
 To do this without any enemy image of the people doing this, and where the purpose of the social change action using protective use of force was just that to protect the children, but without punishing the people who are contributing to the problem. 
 
@@ -333,9 +333,9 @@ Where fathers get disconnected from their selves in a way that they do things th
 
 I get the person who has been wounded, in this case the daughter, together with the father and I try to engage in creating the connection that will help restore peace and harmony between the two parties. 
 
-Now I start by asking the daughter who has been harmed and injured by this behavior to express to the father, how her life has been affected by this. Very often the daughter doesn't have a language of nonviolent communication. All the daughter can do is tell the father, how could you do it? And the child may blame or criticize the father for this. 
+Now I start by asking the daughter who has been harmed and injured by this behavior to express to the father, how her life has been affected by this. Very often the daughter doesn't have a language of Nonviolent Communication. All the daughter can do is tell the father, how could you do it? And the child may blame or criticize the father for this. 
 
-*I use nonviolent communication and supporting the daughter to express clearly to father what feelings and needs of hers were violated by the action*. 
+*I use Nonviolent Communication and supporting the daughter to express clearly to father what feelings and needs of hers were violated by the action*. 
 
 So that might turn into when she asked father, *how could you do it, you destroyed my life?* I may help her translate that, so what she's really trying to say is *I need you to understand the years of pain that I've been experiencing*, since you did this to me. 
 
@@ -353,7 +353,7 @@ So I help him repeat the enormity of suffering she's gone through the needs of h
 
 When she feels fully understood by him, then I support his going inside, and morning what he did. After he has mourned I then support him in making clear what was alive in him, when he did to the daughter that which stimulated so much pain for her. 
 
-#### In nonviolent communication language, I helped him to identify what he was feeling when he did that, and what needs of his he was trying to meet. 
+#### In Nonviolent Communication language, I helped him to identify what he was feeling when he did that, and what needs of his he was trying to meet. 
 
 After I have helped him, get conscious at that level, I help the daughter to empathize with that, to see what was alive in father when he did that. When that connection is there, where the daughter feels fully understood by father, and when what was alive in the father is fully understood by the daughter. 
 

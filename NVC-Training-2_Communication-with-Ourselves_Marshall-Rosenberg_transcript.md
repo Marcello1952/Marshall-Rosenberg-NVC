@@ -2,7 +2,7 @@
 
 **Working with anger, depression, self-judgement, and not giving away our power to cultural programming**
 
-> In this session, I would like to focus on how we apply nonviolent communication within ourselves.
+> In this session, I would like to focus on how we apply Nonviolent Communication within ourselves.
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)\
 [Training Session # 2 Marshall Rosenberg CNVC org](https://www.youtube.com/watch?v=bH9t1lAX2UQ&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=2)
@@ -36,10 +36,10 @@ He said, Oh, Marshall, that would be a real challenge. Because as I tell you, we
 
 He said, If you say to somebody, you're selfish, here's how it would sound like in our language, *I would say, Marshall sees you taking care of your needs, but not the needs of others. He'd like you to take care of the needs of others as well.* 
 
-When I heard that, I smiled. I said to myself, my goodness, that's pure nonviolent communication. Well, then why was I there to teach them their native language? 
+When I heard that, I smiled. I said to myself, my goodness, that's pure Nonviolent Communication. Well, then why was I there to teach them their native language? 
 
 (2:48)
-Actually, I wasn't there to teach them nonviolent communication. Nonviolent communication was their native language. Their one senator for 60,000 people asked me to work with his people, because logging interests were coming into their habitat and destroying their environment, and his people didn't know how to speak with people who worked for the logging interest, who spoke a different language. So he was wanting me to show them how you communicate with people who speak this different language. 
+Actually, I wasn't there to teach them Nonviolent Communication. Nonviolent communication was their native language. Their one senator for 60,000 people asked me to work with his people, because logging interests were coming into their habitat and destroying their environment, and his people didn't know how to speak with people who worked for the logging interest, who spoke a different language. So he was wanting me to show them how you communicate with people who speak this different language. 
 
 ### OJ Harvey - Relationship Between Language and Violence
 
@@ -61,7 +61,7 @@ Whenever we're feeling those feelings, we are thinking in a way that we have bee
 ## Working with anger 
 
 (5:17)
-When we work with groups on the subject of anger, that's a good feeling to teach us nonviolent communication, because **anger tells us that we are disconnected from our needs**, the central part of nonviolent communication. 
+When we work with groups on the subject of anger, that's a good feeling to teach us Nonviolent Communication, because **anger tells us that we are disconnected from our needs**, the central part of Nonviolent Communication. 
 
 #### Anger tells us we're thinking in a way that creates violence on the planet. 
 
@@ -118,7 +118,7 @@ He went on to tell me this tragic story about how the friend said some things th
 
 The awareness is that all language that implies wrongness, that is a criticism, insult, diagnosis of pathology of others, all such languages, are the cause of anger. Other people are never the cause, only the stimulus. The cause of anger is our thinking. **that thinking that causes the anger is a distorted expression of an unmet need. A distorted expression that not only interferes with getting the needs met, but makes it enjoyable to be violent to others**. 
 
-Whenever we're angry, nonviolent communication shows us how to stop, breathe, and become conscious of what you are telling yourself that makes you angry. When you see the thinking that makes you angry, transform it into the need that it's distorted. Ask yourself, wait a minute, what need of mine is not getting met thats being expressed through judgment of the other person? 
+Whenever we're angry, Nonviolent Communication shows us how to stop, breathe, and become conscious of what you are telling yourself that makes you angry. When you see the thinking that makes you angry, transform it into the need that it's distorted. Ask yourself, wait a minute, what need of mine is not getting met thats being expressed through judgment of the other person? 
 
 You'll know that you have gotten connected to your need. Your body will tell you so your spirit will tell you so. We live in a different world when we are connected to what is alive in us meeting our needs. We live in a different world than when we are up in our head, judging other people in terms of rightness and wrongness. 
 
@@ -159,11 +159,11 @@ So it can be a helpful friend, anger. **We can use it as a wake up call, to iden
 When I was first learning how to do this transformation of my anger, it would take me a while. Because I was very skilled at judging what's wrong with other people in a way that would make me angry. But I wasn't very skilled at understanding my needs, getting connected to my needs. It would sometimes be awkward when I was angry, because I would stop right there at that time, take a deep breath, identify the thinking making me angry, connect to the need behind it, and then I would open my mouth. But this would take me some time and this was awkward in certain situations. 
 
 (19:37)
-For example, one time my oldest son and I were having a disagreement. This was at a time when I was first learning nonviolent communication and something he said, and the way he said it, just really stimulated some anger on my part. **I took a breath and I saw what I was telling myself self that made me angry. I saw the need behind that. As soon as I saw the need, creating the anger, I no longer felt angry.** Then when I opened my mouth, I came out of a different energy than if I had reacted immediately out of the anger. But this was taking me some time. 
+For example, one time my oldest son and I were having a disagreement. This was at a time when I was first learning Nonviolent Communication and something he said, and the way he said it, just really stimulated some anger on my part. **I took a breath and I saw what I was telling myself self that made me angry. I saw the need behind that. As soon as I saw the need, creating the anger, I no longer felt angry.** Then when I opened my mouth, I came out of a different energy than if I had reacted immediately out of the anger. But this was taking me some time. 
 
 Meanwhile, his friends were outside waiting for him. *He said, Dad, it's taking you so long to talk. I said, let me tell you what I can say quickly, do it my way or I'll kick your butt.* He said, Take your time, dad. Take your time.
 
-People who have known me in the days before I learned nonviolent communication are very patient when I take my time. They know what comes out quickly. They're willing to wait to hear what's really alive in me, and to hear that life in me, described in a way that doesn't imply wrongness on their part. 
+People who have known me in the days before I learned Nonviolent Communication are very patient when I take my time. They know what comes out quickly. They're willing to wait to hear what's really alive in me, and to hear that life in me, described in a way that doesn't imply wrongness on their part. 
 
 *One way in which we can make our own life much more enjoyable, is whenever we are thinking in a way that is causing anger, depression, guilt, or shame, to transform that thinking into what need of ours is being distorted by the thinking that's causing those feelings.*
 
@@ -196,7 +196,7 @@ This is a very costly way to think. Not only is it costly by how it creates depr
 (25:23)
 In other words, I tell them that all of the thinking that makes us angry, depressed, guilt or shame is a tragic expression of an unmet need. **To really learn from this mistake, without losing self respect, we need to mourn but to mourn without blaming.** 
 
-This is a very important difference in nonviolent communication, the difference between morning and blaming ourselves. Morning requires that we be connected to our need that wasn't met by our behavior. When we're connected to that, we might feel sadness, frustration. These are quite different feelings in terms of their effect on our spirit and on our bodies, than how we feel when we blame ourselves and feel the depression, guilt, shame. 
+This is a very important difference in Nonviolent Communication, the difference between morning and blaming ourselves. Morning requires that we be connected to our need that wasn't met by our behavior. When we're connected to that, we might feel sadness, frustration. These are quite different feelings in terms of their effect on our spirit and on our bodies, than how we feel when we blame ourselves and feel the depression, guilt, shame. 
 
 ### Unmet Needs and Self-Compassion
 
@@ -221,7 +221,7 @@ For example, if it's a parent who is mourning how they screamed at their child a
 (29:07)
 Now, once people do understand the need that they were trying to meet by doing what they did that we're calling a mistake, there's again a relief. They can feel some pain for what they did. But it's a relief to see that they didn't do it because they're a bad person. They did it to meet a need of theirs. That's what we call self forgiveness. Because as they say, in [a course in miracles](https://acourseinmiraclesnow.com/course-miracles-chapter-16-true-empathy/), when we empathize, there's nothing to forgive. 
 
-#### That's how we show people how to apply nonviolent communication when they've made a mistake. 
+#### That's how we show people how to apply Nonviolent Communication when they've made a mistake. 
 
 *First, be conscious of what you tell yourself*, as a result of making the mistake, and translate the self-judgment, that's likely to be there, into an unmet need, and **that's morning**. 
 
@@ -312,7 +312,7 @@ He answers this way, *I just want him to stay with me till I can be sure he won'
 
 #### Nonviolent communication wants to support people to see that they are human beings and not a chair.
 
-That's why nonviolent communication focuses our attention on what's alive in us and what's alive and other people, and doesn't get us stuck in thinking of what we are. To really stay connected to our humaneness, moment by moment, requires a language different than that in which we have been educated. It requires a language of life. 
+That's why Nonviolent Communication focuses our attention on what's alive in us and what's alive and other people, and doesn't get us stuck in thinking of what we are. To really stay connected to our humaneness, moment by moment, requires a language different than that in which we have been educated. It requires a language of life. 
 
 This language of life as I have described, its core ingredient is our needs. To be able to say at any moment what need is alive in us, when our needs are being fulfilled, we want to celebrate. When our needs are not being fulfilled, we want to mourn. 
 
@@ -336,7 +336,7 @@ Many parents tried to motivate their children this way. Let's say the child has 
 (45:39)
 They may go in and clean up the room then but it will be very costly. Any action we take out of that kind of guilt, is not taken out of caring for people. It's taken to release ourselves from guilt, and this brings negative associations to the guilt inducing person. Whenever we motivate by guilt, it's costly to us. 
 
-#### In nonviolent communication, it is stressed to be aware that we are responsible for our own feelings
+#### In Nonviolent Communication, it is stressed to be aware that we are responsible for our own feelings
 
 Other people can't make us feel anything. Our feelings are a result of how we take things. We cannot make other people feel as they do. They are responsible for how they take it. 
 
@@ -353,11 +353,11 @@ Once again, I would be responsible for how I took it, and how I felt, and they a
 ## Judging yourself for judging yourself
 
 (48:21)
-One of the things that people often go through when they're learning nonviolent communication, and they see how what they're telling themselves creates their feelings, they see that they're killing themselves with thoughts like, "that was a stupid thing to do", and its the way they took it that's making them feel such shame and guilt.
+One of the things that people often go through when they're learning Nonviolent Communication, and they see how what they're telling themselves creates their feelings, they see that they're killing themselves with thoughts like, "that was a stupid thing to do", and its the way they took it that's making them feel such shame and guilt.
 
-> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying nonviolent communication long enough that I should no longer think that way. *they judge themselves for judging themselves, which just makes them feel even worse than ever.* 
+> Very often when people see that they're thinking in that way that creates their feeling of shame and guilt, they say to themselves, I shouldn't feel that way, what's wrong with me? I've been studying Nonviolent Communication long enough that I should no longer think that way. *they judge themselves for judging themselves, which just makes them feel even worse than ever.* 
 
-We suggest that in learning nonviolent communication is very important to keep conscious at all times: 
+We suggest that in learning Nonviolent Communication is very important to keep conscious at all times: 
 
 * **The goal of life is not to be perfect. It's to become progressively less stupid.** 
 
@@ -370,7 +370,7 @@ We suggest that in learning nonviolent communication is very important to keep c
 #### I'd like to give a couple examples of how we can learn from our limitations when we transform our self-judgments into needs
 
 (49:55)
-I was presenting in front of 800 teachers in a school system. I was asked to speak at their once a year meeting. After I presented what I had to say about how to create schools in harmony with nonviolent communication, four of the school administrators were on a panel to react to what I said. 
+I was presenting in front of 800 teachers in a school system. I was asked to speak at their once a year meeting. After I presented what I had to say about how to create schools in harmony with Nonviolent Communication, four of the school administrators were on a panel to react to what I said. 
 
 One of the persons said to me, when he heard that I was suggesting, in our schools, we have no punishments. We didn't judge students as bad, but that we spoke honestly with them about whether or not their behavior was in harmony with our values or needs. We judge that way, but not judgments of a moralistic sort that implied wrongness. 
 
@@ -421,7 +421,7 @@ He said, That's right.
  
 Then I could show him that I was also in favor of rules, but that I showed him a different way of **establishing rules based on the [protective use of force](https://nvcnextgen.org/2018/10/on-the-punishment-and-the-protective-use-of-force-by-jim-manske/) and not the punitive use of force** and we connected in a very positive way. 
 
-After that meeting, he came up to me and said he was a minister at one of the local churches. He wanted to apologize for saying the things he had said at the beginning. He said, I see now I didn't understand the kind of program you and the superintendent for trying to create here in the system. He said, I would like to invite you to come to my church and give a presentation to the people in my church, I think it would be very helpful for them. That started a connection I had with him and his church that lasted 20 years, where twice a year, I would go to his church and do training in nonviolent communication. 
+After that meeting, he came up to me and said he was a minister at one of the local churches. He wanted to apologize for saying the things he had said at the beginning. He said, I see now I didn't understand the kind of program you and the superintendent for trying to create here in the system. He said, I would like to invite you to come to my church and give a presentation to the people in my church, I think it would be very helpful for them. That started a connection I had with him and his church that lasted 20 years, where twice a year, I would go to his church and do training in Nonviolent Communication. 
 
 #### I offer this as an example of how we can learn from our limitations without blaming ourselves hating ourselves 
 
@@ -430,7 +430,7 @@ We do that by being conscious of what need isn't met by our behavior. Then empat
 
 ## Training ourselves never to give our power away 
 
-Another way in which nonviolent communication supports people and living the life they choose to live, instead of the life that sometimes they have been programmed by their culture to live, is to know how to deal with other people's messages, that come at you, in a way that never gives other people the power to dehumanize you. I'm going to be talking in greater depth about this in a later session on the subject of empathy. 
+Another way in which Nonviolent Communication supports people and living the life they choose to live, instead of the life that sometimes they have been programmed by their culture to live, is to know how to deal with other people's messages, that come at you, in a way that never gives other people the power to dehumanize you. I'm going to be talking in greater depth about this in a later session on the subject of empathy. 
 
 (58:46)
 For the moment, I'd like to concentrate on how we can train ourselves never to give our power away to other people. 
@@ -467,7 +467,7 @@ When we do that, we can learn from whatever that person is saying in a way that'
 In this way, people can see that our safety is a result of how we respond. That puts our safety in our hands, and doesn't give our power away to other people. 
 
 (1:01:30)
-In schools that we've created, which we call non-violent communication schools, in some areas, and we have other names for them in other areas. In these schools, we teach the teachers, the administrators, and the students how to speak nonviolent communication. My oldest son went to a school like this, where the students all learned nonviolent communication, and we want students to know, what I was just saying, that your security rests in your hands. 
+In schools that we've created, which we call non-violent communication schools, in some areas, and we have other names for them in other areas. In these schools, we teach the teachers, the administrators, and the students how to speak Nonviolent Communication. My oldest son went to a school like this, where the students all learned Nonviolent Communication, and we want students to know, what I was just saying, that your security rests in your hands. 
 
 > Don't ever give up your security, to the structures in which you're in, or to other people's messages toward you. 
 
@@ -520,7 +520,7 @@ I said to my son, wow, am I glad that you could remember that under those condit
 (1:04:43)
 I just tried to hear his feelings and needs dad. I just guessed that he was irritated and wanted me to cut my hair. This is another lesson that we would like children to learn how to see people's humaneness no matter how they communicate. Once again, I was very delighted that my son could remember to do that. I said to him, how did you feel after you heard what you thought he might be feeling and needed. *He said that I felt sad for the man. He was bald and seemed to have a thing about hair*. 
 
-This is one of the lessons, that nonviolent communication is designed to help us remember at all times, no matter what structures we're in, to never give the structure or its rules, the power to determine what we do to make sure that each of our actions comes from our consciousness of our own values, and our choosing to act in harmony with our own values. 
+This is one of the lessons, that Nonviolent Communication is designed to help us remember at all times, no matter what structures we're in, to never give the structure or its rules, the power to determine what we do to make sure that each of our actions comes from our consciousness of our own values, and our choosing to act in harmony with our own values. 
 
 #### In this way, we are not submitting or rebelling. We're acting in harmony with our own values each moment.
 

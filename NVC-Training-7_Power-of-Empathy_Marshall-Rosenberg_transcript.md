@@ -39,9 +39,9 @@ The word healing has some aspects that I get concerned about. When it's applied 
 
 My concerns about this concept began when I receive some precious gifts from a professor I had at university, just before I was ready to graduate with my doctor's degree in clinical psychology. This Professor showed me the scientific limitations of the concept of mental illness, and the political dangers of this concept. 
 
-He helped me to see that there was almost no reliability about how professionals use these terms because it was an real scientific basis for all of the different problems that were defined in the basic manual used by psychiatrists and psychologists to make diagnoses. 
+He helped me to see that there was almost no reliability about how professionals use these terms because there was no real scientific basis for all of the different problems that were defined in the basic manual used by psychiatrists and psychologists to make diagnoses. 
 
-So what one professional might call a bipolar disease, another might call something else. And research shows that there's very little reliability of a scientific nature about how all of these terms in the manual are used. But what's more important to me is the political dangers to this. He pointed out to me that we live under political and economic structures that require a certain education, that contributes to great pain on the part of large numbers of people. 
+What one professional might call a bipolar disease, another might call something else. And research shows that there's very little reliability of a scientific nature about how all of these terms in the manual are used. But what's more important to me is the political dangers to this. He pointed out to me that we live under political and economic structures that require a certain education, that contributes to great pain on the part of large numbers of people. 
 
 He helped me to see how **the concept of mental illness takes the focus away from what might be causing the problems, the structures and the education they require**. By making it look like it's something that's wrong within individuals, we take away from what's really creating the problem. We do it in a way that isn't really helping the people because we talk as though they have an illness. 
 
@@ -58,9 +58,9 @@ In this book, he looks at the human suffering that many people go through that i
 5:04  
 This is the kind of way that I like to look at the pain that many people have brought to me over the years. If we look at this pain in a certain way, **we can come out of it stronger people than we would have been if we didn't have this experience.**
 
-#### I'd like to give you an example of what I mean by looking at nonviolent communication as it relates to the healing process. 
+#### I'd like to give you an example of what I mean by looking at Nonviolent Communication as it relates to the healing process. 
 
-In the healing work that I do using nonviolent communication, empathy plays a key role. And there's three aspects of the empathy that really contribute to healing. One of these aspects is when people can get empathy for the present pain they are experiencing as a result of something that has happened to them in their life, that empathy is the most important thing that contributes to healing. 
+In the healing work that I do using Nonviolent Communication, empathy plays a key role. And there's three aspects of the empathy that really contribute to healing. One of these aspects is when people can get empathy for the present pain they are experiencing as a result of something that has happened to them in their life, that empathy is the most important thing that contributes to healing. 
 
 For example, Carl Rogers did some research on what contributes to healing. And in this research, he had patients in a mental hospital assigned to work with psycho-therapists from different persuasions. These therapist tape recorded their sessions. And various measures were made of what went on between the patients and the therapist. 
 
@@ -89,11 +89,11 @@ I'll be playing the role of a father who has stimulated a lot of pain in his 30 
 
 #### In this role play, I'll be playing the role of a father who has stimulated great pain for his daughter. 
 
-I'll be using nonviolent communication and demonstrating how empathic connection is used in a nonviolent communication way. My daughter will not be speaking nonviolent communication. 
+I'll be using Nonviolent Communication and demonstrating how empathic connection is used in a Nonviolent Communication way. My daughter will not be speaking Nonviolent Communication. 
 
 Usually this kind of work begins when I ask the other person, in the role of the person who stimulated the pain, to tell me "what's still alive in you that you would like me to hear? Don't worry about how I receive it, I'm now learning how to respond empathically, so I won't respond as I have in the past." 
 
-So let's start with that daughter, I'm confident that I can empathically connect with whatever you want to say. So please tell me what's still alive in you, as a result of our prior relationship, that you'd like me to hear.
+Let's start with that daughter, I'm confident that I can empathically connect with whatever you want to say. So please tell me what's still alive in you, as a result of our prior relationship, that you'd like me to hear.
 
 11:47  
 *I feel worthless and I feel totally rejected by all the men that I touch. I want to be in relationship. I've been through two divorces. And I do not know how to even connect with any man because of you, when I would come to you for any kind of a need that I really wanted you to listen to, you immediately would interrupt and would the first word that would come out of your mouth was that I deserved it and I was totally a no good stupid idiot, and I was a worthless female, girl.* 
@@ -107,19 +107,19 @@ Well, I want to be sure that I'm taking all of that in daughter. That's very pre
 *I'm just right now burning with steam for you to even say precious. I feel cheated. By all that. You said yes, you are hearing me, but at the same time, I'm doubting you. I don't trust you.*
 
 13:59  
-So In addition to those feelings I'm hearing there's still a great deal of rage on your part. Because what I did was hard for you to see in any way except as something that was a violation of you. And then I'm hearing that it's hard for you to trust right now, even when I'm trying to understand you in this way. You'd like some understanding how hard it is for you to trust me now since this is different than I've communicated to you in the past.
+In addition to those feelings I'm hearing there's still a great deal of rage on your part. Because what I did was hard for you to see in any way except as something that was a violation of you. And then I'm hearing that it's hard for you to trust right now, even when I'm trying to understand you in this way. You'd like some understanding how hard it is for you to trust me now since this is different than I've communicated to you in the past.
 
 14:32  
 *Yes, I feel all the put downs and all the criticism, from the time I would want to sit in your lap, you didn't even want me to even get close to you. I thought there was something wrong with me that I was totally a mess. I grew up feeling this worthlessness of not being even visible. I wanted you, I want you to look at me, you overpowered me from the time I was little.*
 
 15:08  
-So what I'm hearing is that still exist in you a great deal of hurt, that your need to feel valued wasn't met in our relationship and you're still carrying this, this pain in you that whatever is you will not really meet with acceptance. Am I hearing this correctly?
+What I'm hearing is that still exist in you a great deal of hurt, that your need to feel valued wasn't met in our relationship and you're still carrying this, this pain in you that whatever is you will not really meet with acceptance. Am I hearing this correctly?
 
 15:34  
 *Yes you are. Yes. It's about that shame that I still have inside. Every time I think about wanting to even think about you, I start feeling all this guilt that you always would put on me, especially when I would come home from school and something would happen and you would turn it around and hit me and get the belt and just leave me on the floor and didn't care whether I was crying, and if I cried even a little bit louder then you would come and hit me more so that I would shut up.*
 
 16:10  
-So you're still suffering the pain of those times when you really need understanding and got quite the opposite, instead of being understood for what was bothering you when you were crying, you heard a criticism, you felt you received punishment, and you'd like me to be aware of how that has affected you, that it's leaving you now feeling scared to reveal yourself? Am I hearing you correctly?
+You're still suffering the pain of those times when you really need understanding and got quite the opposite, instead of being understood for what was bothering you when you were crying, you heard a criticism, you felt you received punishment, and you'd like me to be aware of how that has affected you, that it's leaving you now feeling scared to reveal yourself? Am I hearing you correctly?
 
 16:41  
 *Yes, you are. Yes, I can for the first time hear that you are listening.*
@@ -149,7 +149,7 @@ And I'm sad for you*.
 18:49  
 I'm so sad that I didn't know a way of expressing my pain that would wouldn't have left you feeling there was something wrong with you. I wish I could have just said, at that time, I'm in so much pain daughter, it's hard for me to hear you cry. I wish I could have done anything except communicate in a way that would contribute to your feeling that you weren't valued. So I'm grateful to you for having this dialogue with me now. 
 
-#### So that's how healing sessions often go when we apply nonviolent communication to the healing. 
+#### That's how healing sessions often go when we apply Nonviolent Communication to the healing. 
 
 Notice that in that dialogue, I began in the role of Father empathically, connecting to what was alive in her now. Notice how little time we spent talking about the past it was mostly focusing on what is alive now. And when my daughter received the empathy she said she needed now. Then she could empathize with what was alive in me when I was doing the things and saying the things that stimulated to her pain. 
 
@@ -157,7 +157,7 @@ Over the years, many people have come to me wanting to have some healing for a l
 
 Very often I will start by saying to people, **_I think we can heal from this situation, if you can tell me what's alive in you now, as a result of what happened in the past_. Let's just talk about what's alive now. Maybe it was stimulated by something that somebody did in the past. But just tell me now, what is alive in you now**? 
 
-If the person is very depressed. They usually don't know how to tell me really what's alive in them now, as we define that term. In nonviolent communication, that what is alive in you now is what are you feeling? And what are you needing? 
+If the person is very depressed. They usually don't know how to tell me really what's alive in them now, as we define that term. In Nonviolent Communication, that what is alive in you now is what are you feeling? And what are you needing? 
 
 Most people who I find are very depressed, do not know how to express and stay connected to their feelings and needs. **They feel their depression because of how they think about themselves. And they think about themselves this way, not because they have an illness called depression. But because they have been educated to think about themselves in a way that creates depression**.
 
@@ -169,7 +169,7 @@ They usually give me a diagnosis of themselves.
 
 They'll say something to me like, I'm a failure. I look at my brothers and sisters and I see all they've accomplished in life. I compare myself to them and I see what a failure I am. Or, other people tell me, I'm a terrible mother. Or others tell me, I'm too sensitive. All I know is that I get hurt. No matter what somebody says, What's wrong with me? I'm so sensitive. 
 
-So notice, I've asked these people what their needs are, but they don't tell me their needs. They're very literate, telling me what they think about themselves, what they think about themselves in a way that implies there is something wrong with them. And that's the kind of thinking I believe contributes to depression. 
+Notice, I've asked these people what their needs are, but they don't tell me their needs. They're very literate, telling me what they think about themselves, what they think about themselves in a way that implies there is something wrong with them. And that's the kind of thinking I believe contributes to depression. 
 
 What I do with such people, I help them to identify these judgments and help them to see that all of **these judgments that we make of ourselves that stimulate depression are simply expressions of unmet needs**. We have needs in our life, that we're not meeting to our satisfaction. 
 
@@ -183,7 +183,7 @@ I teasingly tell people, if you want to know how to get really depressed in life
 
 They know this precious job of parenting, this precious opportunity to bring people into this world and prepare them for the world, it's a precious job, but if we have been educated to think of ourself in a moralistic, judgmental way, we can take that job and turn it into something miserable because anytime things aren't going well between our children and ourself, and we start thinking, I'm a terrible parent, what's wrong with me, I should know better. We're going to be depressed a good deal of the time. 
 
-So when I'm working with such people, I help them, first of all, to recognize that the depression is a good signal. It tells us we're thinking in a way that's not good for our well being, or the people around us. But don't judge yourself negatively for having that thinking. That'll just perpetuate the problem. Just see the thinking, see what you're telling yourself, and how that makes you feel depressed. 
+When I'm working with such people, I help them, first of all, to recognize that the depression is a good signal. It tells us we're thinking in a way that's not good for our well being, or the people around us. But don't judge yourself negatively for having that thinking. That'll just perpetuate the problem. Just see the thinking, see what you're telling yourself, and how that makes you feel depressed. 
 
 If you see that you're depressed, because you're telling yourself you're such a terrible parent, be conscious that **all of those judgments, that have that effect on us, are really valuable messages if we hear the truth, to hear that what they really are trying to say is, a need of mine is not getting met by what I'm doing**. 
 
@@ -233,7 +233,7 @@ Then he looked at the ceiling and rolled his eyes because he had heard the same 
 
 I said, hold it, hold it. Every time we make a diagnosis like that about people. It's going to make it that much harder to resolve the conflict. 
 
-So I said to him, Well, it's quite obvious your wife is really not connected to what your needs are in this money situation. So could you explain what your needs are? 
+I said to him, Well, it's quite obvious your wife is really not connected to what your needs are in this money situation. So could you explain what your needs are? 
 
 He said to me, Marshall, she's a wonderful mother, she's a wonderful wife, but when it comes to money, she's totally irresponsible. 
 
@@ -241,7 +241,7 @@ She jumps in and says, you know, that's not fair.
 
 See, I asked him what his needs were. He's like many people, they don't really know how to say their needs, but they're quite skilled at saying what's wrong with other people for not meeting their needs. 
 
-I could see that neither of them had the skills yet that nonviolent communication provides us with skills for clearly expressing our needs without criticizing the other person. So **then I used nonviolent communication in a mediation sense by translating each of their judgments into their needs**. 
+I could see that neither of them had the skills yet that **Nonviolent Communication provides us with skills for clearly expressing our needs without criticizing the other person**. Then I used Nonviolent Communication in a mediation sense by translating each of their judgments into their needs.
 
 Having heard the husband say that his wife was totally irresponsible about money. I said, it sounds to me, sir, as though you're really scared about how she has handled money at times in the past, and you have a need to protect the family economically. Is that what your need is? 
 
@@ -254,24 +254,24 @@ Well, that, of course, wasn't exactly what he said, he said she was totally irre
 <u>Here's a good example of that</u>. I asked for his needs, which were for financial security for the family, and he put it in the form of a diagnosis of her, that she was totally irresponsible.
 
 33:00  
-So I said to her, could you tell me back what your husband said his needs were? 
+I said to her, could you tell me back what your husband said his needs were? 
 
 She said, he said that I'm irresponsible, he doesn't understand.... 
 
 and I stopped her, and I said, hold it hold. So notice she's heard this criticism for so long that even when he expresses his needs, she can't hear it. She still hears the criticism. We pay for every criticism people hear us making. It makes it that much harder for them to see our humaneness, what we're feeling what we're needing. 
 
-So I repeated the need for her. **I said, I hear your husband say that he has a need for economic security for the family**. Can you just hear that? Within a couple of repetitions, she was able to see that his need was to protect the family economically, and that's why he wasn't letting her write any checks.
+I repeated the need for her. **I said, I hear your husband say that he has a need for economic security for the family**. Can you just hear that? Within a couple of repetitions, she was able to see that his need was to protect the family economically, and that's why he wasn't letting her write any checks.
 
 34:01  
 And then I helped her express her needs. Her needs were that she needed to be trusted that she could learn how to handle money. She wanted understanding and empathy from her husband that because she had overdrawn the checkbook didn't mean she couldn't learn. 
 
-So I said to the husband, **I hear your wife saying that she has a need to be trusted that she can learn, that's her need**. Could you repeat that back? 
+I said to the husband, **I hear your wife saying that she has a need to be trusted that she can learn, that's her need**. Could you repeat that back? 
 
 He said, we'll be poor by then. 
 
 Again, an example of how once we have a set image of people, it's hard for us to see their humaneness. We get stuck in our diagnosis of them. 
 
-So it took me a couple more repetitions of her need to be trusted, before he could just hear that, and keep separate his diagnoses of her. 
+It took me a couple more repetitions of her need to be trusted, before he could just hear that, and keep separate his diagnoses of her. 
 
 I repeated the needs that both had, I said, so on hearing husband that you have a need for economic security for the family, you want to be sure that whatever is done protects the family economically? 
 
@@ -288,13 +288,13 @@ My experience has been with group after group, or two people, having conflicts. 
 
 ### Warring Tribes
 
-*Now let's look at how nonviolent communication can support mediation between two groups.* 
+*Now let's look at how Nonviolent Communication can support mediation between two groups.* 
 
 I was asked to mediate between two tribes in northern Nigeria, in Africa. *The tribes had been involved in serious warfare for about a year, where about 40% of the population had been killed.* 
 
 Thanks to a colleague of mine, who put in six months of hard work, going back and forth to the chiefs of each side, he finally got the chiefs on each side to agree to mediate and to have me serve as a mediator. 
 
-So I was in a room now with 12 members of the Christian tribe and 12 members of the Muslim tribe and I explained to them how I do mediation. 
+I was in a room now with 12 members of the Christian tribe and 12 members of the Muslim tribe and I explained to them how I do mediation. 
 
 > I said, for me, I'm confident we can resolve the conflict without further violence when both sides can clearly express their needs, and be heard by the other side. 
 > 
@@ -311,11 +311,11 @@ This stimulated a counter judgment from the Muslim side of the Muslim chief scre
 
 *You have been dominating us! We're not going to tolerate it anymore!* 
 
-So **notice I asked for needs and what I got back for two diagnoses**. 
+**notice I asked for needs and what I got back for two diagnoses**. 
 
 > This is where I think violence is provoked on our planet, when we educate people to think in terms of wrongness of one another, not to think a language of life, to clarify what our needs are and to hear other people's needs. 
 
-Well, they were screaming at each other and took quite a bit of energy just to calm things down. But I went back then to the chief who screamed "murder", and using nonviolent communication, and being conscious that all such criticism and judgment are tragic expressions of the speaker's needs, I tried to sense what the need was behind that judgment. 
+Well, they were screaming at each other and took quite a bit of energy just to calm things down. But I went back then to the chief who screamed "murder", and using Nonviolent Communication, and being conscious that all such criticism and judgment are tragic expressions of the speaker's needs, I tried to sense what the need was behind that judgment. 
 
 I said to the chief who screamed it. I said, *Chief, are you saying that your need for safety isn't being met, and that you would like some reassurance that whatever conflicts exist, you would want them to be resolved without violence*. 
 
@@ -337,7 +337,7 @@ And then the one who originally spoke up and screamed, *they have been trying to
 
 And I translated that judgment, that diagnosis, into a need. I said, Chief, are you saying your need for equality is not being met, in some of the decisions that are being made? 
 
-He stopped for a moment because he wasn't used to having his new needs expressed, he was much more used to diagnosing the other side. 
+He stopped for a moment because he wasn't used to having his needs expressed, he was much more used to diagnosing the other side. 
 
 But he said yes, that's my need. 
 
@@ -351,12 +351,12 @@ The conflict is in the thinking of both sides, it turns the other side into an e
 
 It took about an hour just to get both sides to express a need and to hear the other side's needs. At that point, one of the chiefs who hadn't spoken yet said to me, Marshall, if we know how to communicate this way, we don't have to kill each other. 
 
-No, I'm convinced we don't have to have violence if we can learn how to connect with each other's needs. When we're conscious that we all have the same needs, when we're conscious that our enemy images of one another get in the way of our connecting at the need level. And when we see we can never win at someone else's expense.
+I'm convinced we don't have to have violence if we can learn how to connect with each other's needs. When we're conscious that we all have the same needs, when we're conscious that our enemy images of one another get in the way of our connecting at the need level. And when we see we can never win at someone else's expense.
 
 42:51  
-#### So that's how nonviolent communication can support us in mediation. 
+#### That's how Nonviolent Communication can support us in mediation. 
 
-If we are skilled at nonviolent communication, and a group invites us to come in and mediate, like I was invited to mediate between the Christian tribes and the Muslim tribes, we can loan our nonviolent communication skills, we can loan our empathy skills by helping each side translate their criticism or judgments of the other into their needs, and then helping the other side to hear it. 
+If we are skilled at Nonviolent Communication, and a group invites us to come in and mediate, like I was invited to mediate between the Christian tribes and the Muslim tribes, we can loan our Nonviolent Communication skills, we can loan our empathy skills by helping each side translate their criticism or judgments of the other into their needs, and then helping the other side to hear it. 
 
 Now, we can do that even when we're not invited in as a mediator, when we have these skills within our families, if we see two of the children fighting with each other, blaming each other, we can do the same thing, even though it wouldn't be seen as an official mediation. 
 
@@ -366,11 +366,11 @@ We can do it as just loaning people the skills when they are in conflict and don
 
 *We've looked at healing mediation, and seeing how empathic connection helps in these areas. Let's look at a related area, reconciliation*. 
 
-It's very similar to mediation, except that in mediation, we have some specific conflicts that haven't been resolved, and we try to resolve them through the use of nonviolent communication and reconciliation. 
+It's very similar to mediation, except that in mediation, we have some specific conflicts that haven't been resolved, and we try to resolve them through the use of Nonviolent Communication and reconciliation. 
 
 It's not necessarily that there's a specific conflict that's alive right now, that needs to be resolved, but ongoing animosity or pain between two individuals or between two groups. 
 
-Once again, like in mediation, if we have nonviolent communication skills, **if we have the ability to empathize, to empathically connect with what people's needs are, behind judgmental messages they make up the other side. We can be of great support to them in reconciliation and creating harmony between the two sides**. 
+Once again, like in mediation, if we have Nonviolent Communication skills, **if we have the ability to empathize, to empathically connect with what people's needs are behind judgmental messages they make of the other side. We can be of great support to them in reconciliation and creating harmony between the two sides**. 
 
 <u>For example, in Israel and Palestine</u>, I was able to identify groups that wanted to work on reconciliation. They wanted to know how to relate more peacefully with the other side. So I met with a group of about 15 Israelis and 15 Palestinians for the purpose of reconciliation, helping get beyond their pain and learning how to work together toward creating peace in the area. 
 
@@ -391,19 +391,19 @@ When she felt that I really understood her, she could hear my needs. I told her 
 
 She first reluctantly came over, sat down, and I helped her to understand what the mayor of his village was trying to say. 
 
-So I said to him, from your statement, what I'm understanding is it the law is very painful for you this law that allows Palestinians to be put in jail on suspicion, for up to six months? 
+I said to him, from your statement, what I'm understanding is it the law is very painful for you this law that allows Palestinians to be put in jail on suspicion, for up to six months? 
 
 He says *it's very painful, it's not fair*. 
 
-So you'd like some understanding of how painful it is, and how it doesn't meet your need for fairness or justice?
+You'd like some understanding of how painful it is, and how it doesn't meet your need for fairness or justice?
 
 He said, *That's right*. 
 
 Then I had the Israeli woman, that was so hurt by and frightened by the message, I had her reflect that back. She could then see what he really meant behind the words, and of course, the energy between the two of them changed. 
 
-#### So here is an example of nonviolent communication in reconciliation work when you're trying to get two groups to work together. 
+#### Here is an example of Nonviolent Communication in reconciliation work when you're trying to get two groups to work together. 
 
-Conflicts like this come up, where they start to have criticism of one another. The reconciliation takes the form of helping empathic connection take place by helping people to identify what their needs are, that are not being met and how to express it without putting it in the form of any criticism. 
+Conflicts like this come up, where they start to have criticism of one another. The reconciliation takes the form of helping empathic connection take place by helping people to identify what their needs are, that are not being met, and how to express it without putting it in the form of any criticism. 
 
 If the people don't know how to do it that way, and the other side gets incensed by it, **We can contribute to the reconciliation by helping the people on the receiving side learn how to hear the needs that are being expressed through the message**. 
 
@@ -413,11 +413,11 @@ If the people don't know how to do it that way, and the other side gets incensed
 
 I had a similar experience in the United States when I was mediating between a group of landowners and a group of Mexican farmworkers. The tension was about farmworkers walking through the property of the landowners, as they came in each day to wait on a street corner for people to pick them up and hire them for work in the fields that day. They lived up in the mountains, in shacks, and the quickest way for them to get down, to where they could be hired, required going through the property of other people. This had stimulated a good deal of violence between the two groups.
 
-The mayor had previously arranged for the two groups to get together to talk about it. But the sessions had started off very difficult and got even worse. So I was asked if I would come and apply nonviolent communication in the restoration of peace and harmony between these two warring sides. 
+The mayor had previously arranged for the two groups to get together to talk about it. But the sessions had started off very difficult and got even worse. So I was asked if I would come and apply Nonviolent Communication in the restoration of peace and harmony between these two warring sides. 
 
 We had about 20 from each side in the room. When I asked who would like to start, whoever would like to start, I'd like to hear your needs being expressed. I'm confident if everybody expresses their needs, and hear's everybody's needs, will be quite able to create more harmony between us. 
 
-So who would like to start? 
+Who would like to start? 
 
 Well, one of the farmworkers screamed across, *you people are racist*. 
 

@@ -1,6 +1,6 @@
 # Introduction - Session #1 - Nonviolent Communication Training - Marshall Rosenberg
 
-> In this session, I'll be giving you an introduction to how I came about the process. I'll be talking about, sharing its purpose, and give you an outline of it. The process I call nonviolent communication.
+> In this session, I'll be giving you an introduction to how I came about the process. I'll be talking about, sharing its purpose, and give you an outline of it. The process I call Nonviolent Communication.
 
 > Nonviolent communication consists of a value system that we are trying to live by. Then it outlines a language, thinking, communication skills, and means of influence that support that way of living.
 
@@ -23,9 +23,9 @@ Hello, my name is Marshall Rosenberg,
 
 I'm very glad to have this opportunity to share with you some skills and some consciousness that have been extraordinarily helpful to me in my life. I'm pleased to say that thousands of people around the world that I've shared it with find it helpful to them, so I'm glad to share it with you, through this program.
 
-In this session, I'll be giving you an introduction to how I came about the process I'll be talking about, sharing its purpose, and give you an outline of the process I call nonviolent communication.
+In this session, I'll be giving you an introduction to how I came about the process I'll be talking about, sharing its purpose, and give you an outline of the process I call Nonviolent Communication.
 
-I don't like that title. But why do I use it? I use it because, over the years, it connects me with the people around the world that find our training very valuable in their lives, and in their political activities. I have used it because it connects me with those people. Why I don't like the title. One of the reasons is the same reason that [Gandhi didn't like the word nonviolent](http://www.gandhiashramsevagram.org/gandhi-relevance/chapter-3-theory-of-nonviolence.php). It says what something isn't, but nonviolent communication is all focused on what we do want, not just what we don't want. 
+I don't like that title. But why do I use it? I use it because, over the years, it connects me with the people around the world that find our training very valuable in their lives, and in their political activities. I have used it because it connects me with those people. Why I don't like the title. One of the reasons is the same reason that [Gandhi didn't like the word nonviolent](http://www.gandhiashramsevagram.org/gandhi-relevance/chapter-3-theory-of-nonviolence.php). It says what something isn't, but Nonviolent Communication is all focused on what we do want, not just what we don't want. 
 
 Also, communication is only a small part of what I'll be sharing with you. **Nonviolent communication consists of a value system that we are trying to live by. Then it outlines a language, thinking, communication skills, and means of influence that support that way of living.** 
 
@@ -93,14 +93,14 @@ Then I asked myself,
 
 It wasn't too clear as I was reading about the comparative religions, how specifically we were meant to behave in order to live in harmony with compassionate giving. So I decided to a different kind of research to observe the people that I respected the most, who seemed the most compassionate, who seemed to enjoy giving to others. I tried to see how were they different than the people who seemed to enjoy criticizing, blaming, and attacking others. It was through studying these people, also studying some research in psychology, that tried to identify what characteristics of development contribute to people's behaving in a compassionate way. 
 
-**I put together from these sources, a process that seemed to me to summarize how we were meant to live and the skills that were necessary to do this.** that's how nonviolent communication evolved from the research that I did, to identify what kind of human development is necessary for us to live compassionately.
+**I put together from these sources, a process that seemed to me to summarize how we were meant to live and the skills that were necessary to do this.** that's how Nonviolent Communication evolved from the research that I did, to identify what kind of human development is necessary for us to live compassionately.
 
-The process that I call nonviolent communication consists of:
+The process that I call Nonviolent Communication consists of:
 
 #### An intention to contribute to our own well being, and the well being of others, compassionately
 
 [14:57]  
-What I mean by giving compassionately is first of all, that whatever we do is done willingly. It's not done out of guilt, or shame, or fear of punishment, or trying to buy love by submitting to what we think others expect us to do. **I saw that the intention I wanted to live by, that I thought was necessary for compassionate giving, is that we give solely out of the joy that comes naturally from contributing to life. Our own life and the lives of others**. I organized what I was learning about this into the program that I now call nonviolent communication. 
+What I mean by giving compassionately is first of all, that whatever we do is done willingly. It's not done out of guilt, or shame, or fear of punishment, or trying to buy love by submitting to what we think others expect us to do. **I saw that the intention I wanted to live by, that I thought was necessary for compassionate giving, is that we give solely out of the joy that comes naturally from contributing to life. Our own life and the lives of others**. I organized what I was learning about this into the program that I now call Nonviolent Communication. 
 
 At the time, I was in private practice of psychology. 
 
@@ -114,10 +114,10 @@ I wanted to offer what I was finding very valuable in some way other than throug
 
 #### How could we get this out to people that might benefit by it. 
 
-So people who had come to me and benefited by the process would invite others that they thought would invite it. The next thing I knew, I was traveling around the United States, because word spreads. People that I had helped in one community to learn the process, and apply it in their lives would tell people that they knew and other communities, and before I knew it, I was spending much of my life traveling around the United States, to different groups of people who are wanting me to share the process with them. In those days, many of the people were concerned with racial relationships. They were seeing the cost of racism and wanted to know how nonviolent communication could be supportive in, first of all, helping people liberate themselves from the kind of thinking and cultural learning that contributed to racism. I was working on that issue with people in many states in the United States, particularly the southern states because, at that time, the country was going through desegregation in the schools and many problems were occurring. People were finding nonviolent communication very helpful, both in transforming racist kinds of thinking into thinking which was more respectful of differences and also helps reconcile warring groups within communities on this subject. 
+So people who had come to me and benefited by the process would invite others that they thought would invite it. The next thing I knew, I was traveling around the United States, because word spreads. People that I had helped in one community to learn the process, and apply it in their lives would tell people that they knew and other communities, and before I knew it, I was spending much of my life traveling around the United States, to different groups of people who are wanting me to share the process with them. In those days, many of the people were concerned with racial relationships. They were seeing the cost of racism and wanted to know how Nonviolent Communication could be supportive in, first of all, helping people liberate themselves from the kind of thinking and cultural learning that contributed to racism. I was working on that issue with people in many states in the United States, particularly the southern states because, at that time, the country was going through desegregation in the schools and many problems were occurring. People were finding Nonviolent Communication very helpful, both in transforming racist kinds of thinking into thinking which was more respectful of differences and also helps reconcile warring groups within communities on this subject. 
 
 [20:07]  
-**When the word got around about how valuable nonviolent communication was with dealing with racism, began to be invited to work with people who are concerned about sexism.** Here again, found that the process was very helpful in the work that the people were doing in that area. 
+**When the word got around about how valuable Nonviolent Communication was with dealing with racism, began to be invited to work with people who are concerned about sexism.** Here again, found that the process was very helpful in the work that the people were doing in that area. 
 
 One of the problems I faced was that working with the people in those areas, racism and sexism, often did not have much money to offer me for providing the help that I was giving them. When I was in private practice, I was getting a lot of affluent people coming to me for my services, but just to go out and offer it to people around that would invite me into their community, having heard about it, the initial groups were not very affluent people. 
 
@@ -141,7 +141,7 @@ She gave me back the check and she said, Please and buy a car and buy a computer
 #### I formed a not for profit organization called the Center for Nonviolent Communication. 
 
 [24:58]  
-Then I thought, how do you start an organization where it was getting overwhelming for me to be doing all this by myself? So I sent out a letter to people around the United States and Canada who had been finding my training helpful. I invited them to come together if they would be interested in sharing with me the challenge of how do we distribute nonviolent communication in a way that it could be helpful to people most in the United States and Canada. I was delighted to find that 23 people came together. They had this interest in working with me on how we could as a team, make the training more available. But then they were so effective in inviting me all over the United States and Canada. 
+Then I thought, how do you start an organization where it was getting overwhelming for me to be doing all this by myself? So I sent out a letter to people around the United States and Canada who had been finding my training helpful. I invited them to come together if they would be interested in sharing with me the challenge of how do we distribute Nonviolent Communication in a way that it could be helpful to people most in the United States and Canada. I was delighted to find that 23 people came together. They had this interest in working with me on how we could as a team, make the training more available. But then they were so effective in inviting me all over the United States and Canada. 
 
 I was seeing day after day, how valuable the process could be, how many people were using it and how many ways. **I saw that it was far too valuable to make it dependent on my availability**. 
 
@@ -154,18 +154,18 @@ Before I knew it, these teams spread to other teams in the United States. Then a
 
 She went, found people who were interested. I then went to Switzerland and offered the process and when people in the United States heard that I was doing that. Some people said, Well, we know people in Germany. How about while you're over in Switzerland, offering it to people in Germany? I did. That started me then in Europe. That was about 30 years ago. 
 
-**In the 30 years since our process has been spreading throughout the world, so that now we have projects going in about 50 countries. We have a team of about 200 people who I've trained to offer our training to other people and in their countries, they're training other people to train other people. So we're seeing a very rapid distribution of this process of nonviolent communication**. 
+**In the 30 years since our process has been spreading throughout the world, so that now we have projects going in about 50 countries. We have a team of about 200 people who I've trained to offer our training to other people and in their countries, they're training other people to train other people. So we're seeing a very rapid distribution of this process of Nonviolent Communication**. 
 
 ## Process
 
 [29:45]  
-**Now I have outlined the purpose of nonviolent communication:** 
+**Now I have outlined the purpose of Nonviolent Communication:** 
 
 > to provide us with the language with the thinking, communication means of influence that support and connecting with ourselves and others in a way that promotes compassionate giving. 
 
 #### I'd like to clarify for you the structure of the process itself. 
 
-*In subsequent sessions will be looking at these components in greater detail. But for the moment, let me just give you an overview of what nonviolent communication consists of to help support us in creating compassionate giving.*
+*In subsequent sessions will be looking at these components in greater detail. But for the moment, let me just give you an overview of what Nonviolent Communication consists of to help support us in creating compassionate giving.*
 
 [30:33]  
 **First, it requires a radical transformation of language.** 
@@ -187,7 +187,7 @@ In addition to this language that I call a language of domination, it's also imp
 [33:24]  
 Nonviolent communication offers us a different language than a language that implies whether people deserve to be punished or reward. Nonviolent communication focuses our attention on human needs, whether human needs are being fulfilled or not. When they're not, obviously what is called for, is to find ways we can behave that nurture these needs. This is radically different way of thinking. 
 
-Instead of judging right or wrong, to determine whether people are punished or not, are rewarded or not nonviolent communication focuses on what is happening to our needs. 
+Instead of judging right or wrong, to determine whether people are punished or not, are rewarded or not Nonviolent Communication focuses on what is happening to our needs. 
 
 - If our needs are not being fulfilled by what is happening, let us take action that fulfills our needs. 
 - If our needs are being fulfilled, let's celebrate. 
@@ -196,15 +196,15 @@ This is a radical departure from the language of domination, a language of judgi
 
 **Nonviolent communication shows us three other important forms of communication that support expressing our needs and understanding the needs of other people.**
 
-**First** nonviolent communication suggest clarity about actions that are supporting needs being fulfilled or not. 
+**First** Nonviolent Communication suggest clarity about actions that are supporting needs being fulfilled or not. 
 
 Nonviolent communication suggest that we make clear observations that we can tell people when their actions are meeting our needs, and when their actions are not meeting our needs. 
 
-Another component of nonviolent communication are feelings, **feelings are manifestations of what is happening to our needs**. When our needs are not being fulfilled. We feel unpleasant feelings. When our needs are being met. We feel pleasureful feelings 
+Another component of Nonviolent Communication are feelings, **feelings are manifestations of what is happening to our needs**. When our needs are not being fulfilled. We feel unpleasant feelings. When our needs are being met. We feel pleasureful feelings 
 
-**A fourth component of nonviolent communication** are requests. When we see that our needs are not being fulfilled, we need to request of ourselves or others, what actions we would like taken to better meet our needs. 
+**A fourth component of Nonviolent Communication** are requests. When we see that our needs are not being fulfilled, we need to request of ourselves or others, what actions we would like taken to better meet our needs. 
 
-#### Four components makeup nonviolent communication
+#### Four components makeup Nonviolent Communication
 
 [36:09]  
 The most basic, our **needs**, and then **observations** of what is fulfilling our needs and what isn't. **Feelings** to identify the results of what's happening to our needs now, whether they're being met or not. Our feelings reveal that to us. A **request** what we would like done about our needs that are not being fulfilled. 
@@ -217,10 +217,10 @@ Nonviolent communication shows us both how to make these four components clear t
 
 **What's alive in us?** When we say what is contributing to our well being, how we feel and what our needs are that are behind our feelings, that answers the question of what's alive in us at a given moment. 
 
-a second question that nonviolent communication directs itself to is **what would make life more wonderful**? that's where our requests come in. We say what we would like to make life more wonderful.
+a second question that Nonviolent Communication directs itself to is **what would make life more wonderful**? that's where our requests come in. We say what we would like to make life more wonderful.
 
 [38:20]  
-So nonviolent communication involves sharing what's alive in us. What would make life more wonderful? To receive the same information from other people, to connect with what's alive in them, and what would make life more wonderful for them. It has been my experience that when we connect at this level, what's alive in each other and what would make life more wonderful for each other, and we avoid the following, we can find ways of getting everyone's needs fulfilled compassionately. 
+So Nonviolent Communication involves sharing what's alive in us. What would make life more wonderful? To receive the same information from other people, to connect with what's alive in them, and what would make life more wonderful for them. It has been my experience that when we connect at this level, what's alive in each other and what would make life more wonderful for each other, and we avoid the following, we can find ways of getting everyone's needs fulfilled compassionately. 
 
 ## Avoid criticism blame insults or demands
 
@@ -230,7 +230,7 @@ So nonviolent communication involves sharing what's alive in us. What would make
 I have found through my working with people over the years, that anytime people hear criticism or demands, makes it very difficult for people to enjoy contributing to one another's well being. 
 
 [39:38]  
-**nonviolent communication suggests that we avoid at all times the following strategies for trying to influence people to do what we are requesting.** We want people to know that we never want anything done that we request out of guilt or shame created by criticism they hear coming from us. 
+**Nonviolent Communication suggests that we avoid at all times the following strategies for trying to influence people to do what we are requesting.** We want people to know that we never want anything done that we request out of guilt or shame created by criticism they hear coming from us. 
 
 I believe that anytime we influence people, like criticism, blame insults, even if they do what we request, it will be very costly to us. Because then they're not giving compassionately from the heart. They're giving to avoid shame or guilt. Giving done out of that energy, I believe is costly to both parties in any relationship. 
 
@@ -286,7 +286,7 @@ That bothers a lot of people when I say that in our trainings around the world.
 [47:58]  
 For example, a story that clarifies this occurred in city in the United States where I was working with some parents and teachers. When **I suggested that words like have to, should, ought, must, can't, are dangerous, as I would define danger, because they turn out people who don't feel responsible for their actions.** One of the mothers who attended this session got very upset, and she said, but there are some things you have to do, that you have no choice of. There are things I do every day that I hate to do, but there are some things you have to do and it is our job as parents and teachers to see that our children do what they have to do. I said to her, could you give me an example of something you do that you believe now that you have no choice? 
 
-She thought for a moment and said, oh, there's so many things But okay, here's one. When I go home this evening, I have to cook. I hate to cook, I hate it with a passion. But I have done it every day for 20 years, even when I've been sick, I do it. There just are some things you do. I told her I was very sad to hear anybody do anything even one time out of that kind of thinking, thinking in which you believe you have no choice. I told her that I was hoping that if I made clear the value of nonviolent communication and she applied it, she would see many more options open to her in her life. I'm pleased to say she was a very rapid student and applied nonviolent communication very quickly in her life. **She went home that very evening from the workshop and denounced her family that she no longer wanted to cook.**
+She thought for a moment and said, oh, there's so many things But okay, here's one. When I go home this evening, I have to cook. I hate to cook, I hate it with a passion. But I have done it every day for 20 years, even when I've been sick, I do it. There just are some things you do. I told her I was very sad to hear anybody do anything even one time out of that kind of thinking, thinking in which you believe you have no choice. I told her that I was hoping that if I made clear the value of Nonviolent Communication and she applied it, she would see many more options open to her in her life. I'm pleased to say she was a very rapid student and applied Nonviolent Communication very quickly in her life. **She went home that very evening from the workshop and denounced her family that she no longer wanted to cook.**
 
 [50:03]  
 I got some feedback from her family. The feedback happened three weeks later, when I had another introductory session I was doing in town who shows up but her older two sons, she had four sons. They came up to talk to me before the session started. I said, I'm really glad you came up to visit me before the session started. I'm very curious as to what's going on in your home. Your mother has been calling me up about every other day, telling me about the major changes she's been making in her life since the training. I'm always very curious as to how other family members respond to this, when one family member comes home speaking a rather different language. 
@@ -300,19 +300,19 @@ My children taught me I couldn't make them do anything. All I could do is make t
 
 ## Subsequent Sessions
 
-#### we will be looking at various applications of nonviolent communication in our lives. 
+#### we will be looking at various applications of Nonviolent Communication in our lives. 
 
 [53:00]  
-**In session two**, I will be describing how nonviolent communication helps us to stay conscious of how we choose to live and how we can liberate ourselves from any cultural indoctrination that interferes with our living moment by moment in harmony with values of our own choosing. In other words, session will show us how to live the life within ourselves. That mirrors the kind of world we want to live it. If we're not able to live within ourselves in a way that we choose. It will be very difficult for us to contribute to creating an outside world that is acting in harmony with our values.
+**In session two**, I will be describing how Nonviolent Communication helps us to stay conscious of how we choose to live and how we can liberate ourselves from any cultural indoctrination that interferes with our living moment by moment in harmony with values of our own choosing. In other words, session will show us how to live the life within ourselves. That mirrors the kind of world we want to live it. If we're not able to live within ourselves in a way that we choose. It will be very difficult for us to contribute to creating an outside world that is acting in harmony with our values.
 
 [53:52]  
-**In session three**, I will be describing how nonviolent communication supports us to be honest with each other, without any criticism, without any blame, without insulting. So how we can be honest, by revealing what's alive in us, and what would make life more wonderful, but without ever using any criticism, or demands. 
+**In session three**, I will be describing how Nonviolent Communication supports us to be honest with each other, without any criticism, without any blame, without insulting. So how we can be honest, by revealing what's alive in us, and what would make life more wonderful, but without ever using any criticism, or demands. 
 
 [54:22]  
-**In session four**, we'll be looking at how to empathically connect with other people's messages. Now by empathic connection, be referring to how do we see what's alive and other people? what would make their life more wonderful? How do we connect with them in that way, regardless of how they communicate. That's one of the things that people value very much about nonviolent communication. It doesn't require the other person's cooperation for us to reach this connection where everybody's needs can get met. Compassionate giving our ability to hear what's alive and people and what would make life more wonderful for them, regardless of how they communicate greatly opens up the possibilities that we can resolve any conflict without violence. 
+**In session four**, we'll be looking at how to empathically connect with other people's messages. Now by empathic connection, be referring to how do we see what's alive and other people? what would make their life more wonderful? How do we connect with them in that way, regardless of how they communicate. That's one of the things that people value very much about Nonviolent Communication. It doesn't require the other person's cooperation for us to reach this connection where everybody's needs can get met. Compassionate giving our ability to hear what's alive and people and what would make life more wonderful for them, regardless of how they communicate greatly opens up the possibilities that we can resolve any conflict without violence. 
 
 [55:19]  
-**In session five**, we'll be looking at how nonviolent communication supports our ability to get our needs for love met in intimate relationships. 
+**In session five**, we'll be looking at how Nonviolent Communication supports our ability to get our needs for love met in intimate relationships. 
 
 **In session six**, we'll be looking at how we experience authority and how we exercise authority. How we do this by seeing people in authority as offers of nurturing not as controllers and we *will see how this applies*: 
 
@@ -321,17 +321,17 @@ My children taught me I couldn't make them do anything. All I could do is make t
 - as managers, or in any role in which we are defined as some kind of authority. 
 
 [56:07]  
-**In session seven**, I'll be showing how nonviolent communication can contribute to healing, emotional healing. We'll see how each of us has the power to contribute to each other's healing when we can engage in empathic connection and honest expression. We'll also see in session seven, how nonviolent communication can assist when we are mediating between other people's conflicts. Either whether we've been invited to do that, or when we are present, and can offer mediation skills without people even being aware that we're doing it. We'll also see how nonviolent communication can support us in helping bring about reconciliation between groups in pain with each other, whether these groups are within the family business place, or different groups within warring countries. 
+**In session seven**, I'll be showing how Nonviolent Communication can contribute to healing, emotional healing. We'll see how each of us has the power to contribute to each other's healing when we can engage in empathic connection and honest expression. We'll also see in session seven, how Nonviolent Communication can assist when we are mediating between other people's conflicts. Either whether we've been invited to do that, or when we are present, and can offer mediation skills without people even being aware that we're doing it. We'll also see how Nonviolent Communication can support us in helping bring about reconciliation between groups in pain with each other, whether these groups are within the family business place, or different groups within warring countries. 
 
 [57:12]  
-**In session eight**, I'll be describing how nonviolent communication can support us in our social change efforts. We need to not only know how to influence individuals who are behaving in ways we don't like. We need to also know how to do all of the transformation that's necessary for social change to take place. That means that it's not just individuals that we need to know how to transform. But groups of individuals, whether these groups call themselves gangs, whether these groups call themselves Corporation, governments. We look in that session on how nonviolent communication can support us in social change. 
+**In session eight**, I'll be describing how Nonviolent Communication can support us in our social change efforts. We need to not only know how to influence individuals who are behaving in ways we don't like. We need to also know how to do all of the transformation that's necessary for social change to take place. That means that it's not just individuals that we need to know how to transform. But groups of individuals, whether these groups call themselves gangs, whether these groups call themselves Corporation, governments. We look in that session on how Nonviolent Communication can support us in social change. 
 
 [58:03]  
-**In session nine**, we will look at how to keep the energy and the consciousness that nonviolent communication requires. We'll see the role of celebration and gratitude and giving us the energy that it takes to sustain a compassionate life. In a world that often makes it quite a challenge. 
+**In session nine**, we will look at how to keep the energy and the consciousness that Nonviolent Communication requires. We'll see the role of celebration and gratitude and giving us the energy that it takes to sustain a compassionate life. In a world that often makes it quite a challenge. 
 
 ## Conclusion
 
-#### People who have studied nonviolent communication with us usually have two things to say about it. 
+#### People who have studied Nonviolent Communication with us usually have two things to say about it. 
 
 **First, they say how simple it is.**
 
@@ -339,9 +339,9 @@ Because it basically focuses on these two questions that I described what's aliv
 
 **At the same time they say how difficult it is.** 
 
-Now, how can something be so simple and so difficult? Well, it is simple. Nonviolent communication is a more natural way of being. It simply says, Let's stay connected to life, the life within us. Like any other form of life, whether it be a tree or animals, life requires being connected enough to live to know how to fulfill our needs. So in that sense, nonviolent communication is a very simple process. But the second thing that people say about is how difficult it can be. The reason that it's so difficult is that it requires liberating ourselves from centuries of education that have buried what's alive in us behind cultural education that is designed to make us nice Dead people, not compassionate living people.
+Now, how can something be so simple and so difficult? Well, it is simple. Nonviolent communication is a more natural way of being. It simply says, Let's stay connected to life, the life within us. Like any other form of life, whether it be a tree or animals, life requires being connected enough to live to know how to fulfill our needs. So in that sense, Nonviolent Communication is a very simple process. But the second thing that people say about is how difficult it can be. The reason that it's so difficult is that it requires liberating ourselves from centuries of education that have buried what's alive in us behind cultural education that is designed to make us nice Dead people, not compassionate living people.
 
-**I look forward in our subsequent sessions to seeing how we can connect with nonviolent communication in a way that helps us to live our lives more fully.**
+**I look forward in our subsequent sessions to seeing how we can connect with Nonviolent Communication in a way that helps us to live our lives more fully.**
 
 ## Resources
 

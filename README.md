@@ -353,11 +353,11 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 #### Mindful Approach to Nonviolent Communication
 
 * [Say What You Mean](https://more.orenjaysofer.com) by Oren Jay Sofer
-  > How to speak and listen more effectively--to communicate mindfully and improve all relationships--based on the author's unique synthesis of mindfulness practice combined with the principles of nonviolent communication.
+  > How to speak and listen more effectively--to communicate mindfully and improve all relationships--based on the author's unique synthesis of mindfulness practice combined with the principles of Nonviolent Communication.
 * [Oren Jay Sofer - Youtube Channel](https://www.youtube.com/channel/UCt7wz0QFnoI-CHNovcFs3Ug)
   * [Say What You Mean: A Mindful Approach to Nonviolent Communication](https://www.youtube.com/watch?v=GpZMcFzO4eo) 
 * [Ep. 37: Oren Jay Sofer — How to Improve Your Relationships with Better Communication](https://podcasts.apple.com/us/podcast/ep-37-oren-jay-sofer-how-to-improve-your-relationships/id1419082632?i=1000434587959)
-  > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to nonviolent communication.
+  > Do you ever feel like you and someone else—a romantic partner, family member, friend, co-worker, or someone else—just aren't hearing each other? Our relationships will never be better than the quality of our communication. My guest this week is Oren Jay Sofer, who is passionate about helping people to improve their communication abilities through what he describes as a mindful approach to Nonviolent Communication.
 * [Ep. 86 - Oren Jay Sofer - Metta Hour with Sharon Salzberg](https://beherenownetwork.com/sharon-salzberg-metta-hour-ep-86-oren-jay-sofer/)
   > Oren Jay Sofer is a member of the Spirit Rock Teacher’s Council, a Certified Trainer of Nonviolent Communication, and a Somatic Experiencing Practitioner for healing trauma. His first book, “Say What You Mean” comes out in December 2018. In this conversation, Sharon and Oren discuss how Oren came to the path of meditation practice, and his time spent in the East. They also discuss the many nuances of effective communication both related to mindfulness practice, somatic healing, and the application of non-violent communication. The conversation closes with Oren leading a short guided meditation. For more information, visit orenjaysofer.com.
 

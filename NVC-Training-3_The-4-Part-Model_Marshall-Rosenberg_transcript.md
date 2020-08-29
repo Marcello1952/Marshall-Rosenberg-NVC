@@ -1,7 +1,7 @@
 # The 4 Part NVC Model - Session #3 - Nonviolent Communication Training - Marshall Rosenberg
 **Observations, Evaluations, Developing a Literacy of Needs, and Needs vs Strategies**
 
-> We're interested, in nonviolent communication, with the kind of honesty that supports people connecting with each other in a way that makes compassionate giving inevitable, that makes it enjoyable for people to contribute to each other's well being. 
+> We're interested, in Nonviolent Communication, with the kind of honesty that supports people connecting with each other in a way that makes compassionate giving inevitable, that makes it enjoyable for people to contribute to each other's well being. 
 
 > *This kind of honesty basically involves telling people what's alive in us, without using any words that criticize, and tell people what would make life more wonderful for us, what we are requesting, without presenting this as a demand, but presented as a request.*
 
@@ -31,7 +31,7 @@ Many of us have been educated by an honesty that evolves from our system of just
 
 It's my belief that that kind of thinking is the basis of violence on our planet. It's a way of thinking that makes violence enjoyable. 
 
-> We're interested, in nonviolent communication, with the kind of honesty that supports people connecting with each other in a way that makes compassionate giving inevitable, that makes it enjoyable for people to contribute to each other's well being. 
+> We're interested, in Nonviolent Communication, with the kind of honesty that supports people connecting with each other in a way that makes compassionate giving inevitable, that makes it enjoyable for people to contribute to each other's well being. 
 
 *This kind of honesty basically involves telling people what's alive in us, without using any words that criticize, and tell people what would make life more wonderful for us, what we are requesting, without presenting this as a demand, but presented as a request.*
 
@@ -44,7 +44,7 @@ For example, I was working with some school administrators in the United States,
 
 ## Observation and Evaluation
 
-In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a nonviolent communication way.
+In my session with these school principals, I suggested that they think of a teacher who was behaving in a way that they were not happy with, and I would show them how to evaluate that teachers behavior in a Nonviolent Communication way.
 
 #### I started by asking them to think of a specific thing that this person does that you don't like. 
 
@@ -76,7 +76,7 @@ He later told me, when I went back to that school system, a few months later, ho
 
 We can learn by clear observations, but when the observations and evaluations are mixed together, so that it sounds like a criticism, it makes the evaluation period painful for both sides. 
 
-> In nonviolent communication, we want to be sure that whenever we want to talk to somebody about something they're doing that we're not happy with, that we clearly put this in the form of an observation. 
+> In Nonviolent Communication, we want to be sure that whenever we want to talk to somebody about something they're doing that we're not happy with, that we clearly put this in the form of an observation. 
 
 Now, this doesn't mean that that's all we do. The observation by itself doesn't tell fully what's alive in us. 
 
@@ -100,7 +100,7 @@ And they'll say, *I said, 'I feel'*...
 
 I say, the word feel, by itself, can often be used in a way that doesn't refer to feelings, as I define feelings. As soon as you say, I feel that was wrong, I would call that a thought, not a feeling. 
 
-So many people use the word feeling and thought interchangeably. In nonviolent communication, when we use the word feeling, we want it to refer to an emotion that a person is experiencing, that doesn't contain any diagnosis or intellectual analysis of the other person. 
+So many people use the word feeling and thought interchangeably. In Nonviolent Communication, when we use the word feeling, we want it to refer to an emotion that a person is experiencing, that doesn't contain any diagnosis or intellectual analysis of the other person. 
 
 **Feelings would be,**
 
@@ -124,11 +124,11 @@ Not only aren't we educated to speak a language of life, a language of feelings,
 
 **We learn very quickly in life to cover up our emotions and hide them**. Even though *if we want to relate in a way that promotes compassion between ourselves and other people, feelings are a key ingredient.* 
 
-In nonviolent communication, honesty consist of telling people what they're doing clearly in the form of a clear observation, and then evaluating it with reference to feelings and needs. 
+In Nonviolent Communication, honesty consist of telling people what they're doing clearly in the form of a clear observation, and then evaluating it with reference to feelings and needs. 
 
 So I've just described what I mean by feelings. Then we connect these feelings to our needs.
 
-#### nonviolent communication is based on the awareness that feelings are manifestations what's happening to our needs
+#### Nonviolent Communication is based on the awareness that feelings are manifestations what's happening to our needs
 
 (14:00)    
 When our needs are being fulfilled, we feel pleasureful feelings. When our needs are not being fulfilled, we feel painful feelings. This is mother nature's way of helping us to judge our environment in terms of whether what is happening is life serving or not. 
@@ -138,7 +138,7 @@ If we're eating foods that are not good for our health, we feel painful kinds of
 **Painful feelings tell us our needs are not getting met**. 
 **Pleasure feelings tell us our needs are being met**.
 
-The most important part of honesty, in nonviolent communication, is our ability to clarify what is happening to our needs at a given moment. 
+The most important part of honesty, in Nonviolent Communication, is our ability to clarify what is happening to our needs at a given moment. 
 
 **We tell**: 
 * what the other person has done, 
@@ -177,7 +177,7 @@ Of course, this is not easy for people to come by, because as I say, we have not
 
 ## Developing a literacy of needs
 
-Much of nonviolent communication training is designed to helping people develop a consciousness and literacy of needs, and learning how to express these needs to others in a language that others can easily see what the need is, without hearing any criticism. 
+Much of Nonviolent Communication training is designed to helping people develop a consciousness and literacy of needs, and learning how to express these needs to others in a language that others can easily see what the need is, without hearing any criticism. 
 
 *Since many people don't have this vocabulary, we have to do exercises to give them a lot of practice.* 
 
@@ -272,7 +272,7 @@ In other words, if we really want to connect with human beings in a way in which
 
 > Anytime we find ourselves wanting to criticize, when we translate that criticism into our needs that isn't being met, we are far more likely to get our needs met, when we speak our needs than when we tell people what's wrong with them. 
 
-We evaluate behavior best, according to the principles of nonviolent communication, in a way that promotes compassionate giving, where people enjoying learning from each other. 
+We evaluate behavior best, according to the principles of Nonviolent Communication, in a way that promotes compassionate giving, where people enjoying learning from each other. 
 
 We are more likely to promote connections of that sort, speaking clear observations, feelings, and needs.
 
@@ -287,9 +287,9 @@ For example, I was working with teachers in one school system on the eastern sea
 
 I said yes, judgments and evaluations are very helpful, if they're a language of life. But when we put it in the form of a language of right, wrong, good bad, that's promoting a system of domination that I believe is contributing to violence on the planet. 
 
-Well, they often need me to show them concretely in the situations in which they're working what this would look like. For example, in this school system that I was working with, they wanted me to take over several classes for a day, so they could see how I would evaluate students using nonviolent communication. 
+Well, they often need me to show them concretely in the situations in which they're working what this would look like. For example, in this school system that I was working with, they wanted me to take over several classes for a day, so they could see how I would evaluate students using Nonviolent Communication. 
 
-I took over some math classes, and some reading classes, for the day. The school system had me followed around with a video camera, making the videotape of what I did with the students so that this could be used to train the teachers in how to evaluate according to nonviolent communication, principles of evaluation. I worked with students for about four hours that day in different classes. 
+I took over some math classes, and some reading classes, for the day. The school system had me followed around with a video camera, making the videotape of what I did with the students so that this could be used to train the teachers in how to evaluate according to Nonviolent Communication, principles of evaluation. I worked with students for about four hours that day in different classes. 
 
 I went back to that school system a month later, and the superintendent of schools was talking to me before the day started and he said, that video tape you made Marshall last time showing the teachers other ways of evaluating besides using words like good, bad, normal, abnormal boy that has really motivated a lot of teachers to want to change their way of communicating. 
 
@@ -302,11 +302,11 @@ I said, Hey, what's happening? Why are you crying? He said, I got it wrong. Noti
 
 Notice my evaluation enabled me to be honest. I was confused, I did get a different answer. I wanted to see how he got his and I wanted to be able to show him another way of doing it. His way and my way were different. 
 
-In nonviolent communication, we not only want to evaluate without any criticism or blame. We also want to evaluate without any praise or compliments. I'll be talking more about that. In the ninth session, when we talk about how to celebrate and express sincere gratitude. I hope then to show what danger exists in using praise and compliments as well as words that criticize and blame. 
+In Nonviolent Communication, we not only want to evaluate without any criticism or blame. We also want to evaluate without any praise or compliments. I'll be talking more about that. In the ninth session, when we talk about how to celebrate and express sincere gratitude. I hope then to show what danger exists in using praise and compliments as well as words that criticize and blame. 
 
 ### Clearly expressing needs
 
-**In nonviolent communication the focus of our attention is on needs.** 
+**In Nonviolent Communication the focus of our attention is on needs.** 
 
 > We want people to see how their behavior affects human needs, whether it fulfills their own needs or not, whether it fulfills other's needs or not. It's when we are connected, in this way, to what everyone is needing that we have the greatest chance of finding ways of getting everybody's needs met. 
 
@@ -334,14 +334,14 @@ She said he kept on his desk.
 
 **So she told him what she didn't want.** She didn't want him tapping on the desk. 
 
-#### In nonviolent communication, we tell people what we do want, rather than what we don't want. 
+#### In Nonviolent Communication, we tell people what we do want, rather than what we don't want. 
 
-So if she had ended on a request of the kind that were advocating and nonviolent communication, she would have said, Would you be willing to lay your pencil down on the desk, without tapping. **You can add that what you don't want, after you've said what you do.** We want to make clear request after we have made our needs clear. We need to also know the difference between a wish and a clear request. A wish says generally what we would like to happen in the future.
+So if she had ended on a request of the kind that were advocating and Nonviolent Communication, she would have said, Would you be willing to lay your pencil down on the desk, without tapping. **You can add that what you don't want, after you've said what you do.** We want to make clear request after we have made our needs clear. We need to also know the difference between a wish and a clear request. A wish says generally what we would like to happen in the future.
 
 (38:11)    
 So if she had said to him, I would like more awareness on your part of how this is disrupting the class. That would be a wish she would be telling him what she wants him to be aware of, but not telling him what she wants him to do at this moment. 
 
-In nonviolent communication when we've expressed a need that isn't met, we **end on a clear request** of what we want back at this moment. The request needs to be an action language. 
+In Nonviolent Communication when we've expressed a need that isn't met, we **end on a clear request** of what we want back at this moment. The request needs to be an action language. 
 
 We cannot use vague language like I want you to help me. What does that mean? In different contexts, it could mean quite different things. 
 
@@ -374,37 +374,37 @@ I said just what's happening between you and me right now is much of what I want
 
 **With many people, this is very hard to get them to trust that our requests are requests and not demands** to whatever degree people carry memories, that when they don't do what other people want. They have been criticized guilted blamed punished. It becomes very hard to trust that when somebody says what they would like that it is a request and not a demand. 
 
-> In nonviolent communication, we say what is alive in us, what we're observing, feeling, and needing. We make clear requests presented, as best we can, in a way that people can trust it is a request and not a demand. 
+> In Nonviolent Communication, we say what is alive in us, what we're observing, feeling, and needing. We make clear requests presented, as best we can, in a way that people can trust it is a request and not a demand. 
 
-Now, some messages are really hard to say in a nonviolent communication way. Some of these messages are very important to be able to say. For example, the word no.
+Now, some messages are really hard to say in a Nonviolent Communication way. Some of these messages are very important to be able to say. For example, the word no.
 
 ### Saying No
 
-How do you say "no", in a way that's in harmony with nonviolent communication? 
+How do you say "no", in a way that's in harmony with Nonviolent Communication? 
 
 *It requires saying three things.*
 
-**First.** When somebody requests something of you, to say no in nonviolent communication, **we begin by showing that we receive the other person's request as a gift.** They're giving us a gift when they ask us to do something. It gives us a chance to contribute to their well being. How do we do this? 
+**First.** When somebody requests something of you, to say no in Nonviolent Communication, **we begin by showing that we receive the other person's request as a gift.** They're giving us a gift when they ask us to do something. It gives us a chance to contribute to their well being. How do we do this? 
 
 Largely non verbally, by how we respond to what they've asked us to do, our nonverbal behavior will often tell people whether we're hearing it as a demand, criticism, or as a request that gives us a chance to contribute to their well being. Receiving what they have said is a gift is the first step in how to say no. 
 
-**The second step**, is to be aware that "no" is a poor expression of a need. Anytime a person says no, they're basically saying I have a need that keeps me from wanting to do what you have requested at this moment. **To say no in a nonviolent communication way. We say the need that keeps us from saying yes.** 
+**The second step**, is to be aware that "no" is a poor expression of a need. Anytime a person says no, they're basically saying I have a need that keeps me from wanting to do what you have requested at this moment. **To say no in a Nonviolent Communication way. We say the need that keeps us from saying yes.** 
 
 If a person asked us if we would be willing to help them with cleaning up some job around the house, to say the need behind the no might go like this, he might say "right now I'm really very tired and have a need for some rest." That's saying what need keeps you, at that moment, from wanting to do what the other person has requested. 
 
-**The third ingredient** in saying no in a nonviolent communication way, is to **end on a request that searches for a way to get everybody's needs met.** That might sound like this in the situation where the person has asked you for some help and cleaning up the house. After saying, I'm really fatigued right now and have a need for some rest. But it'd be okay if we did this in 30 minutes after I had a chance to get some rest. 
+**The third ingredient** in saying no in a Nonviolent Communication way, is to **end on a request that searches for a way to get everybody's needs met.** That might sound like this in the situation where the person has asked you for some help and cleaning up the house. After saying, I'm really fatigued right now and have a need for some rest. But it'd be okay if we did this in 30 minutes after I had a chance to get some rest. 
 
 Or would you be willing to ask, and then I might say someone else around the house that I think might be willing to do it. I'd say would you be willing to ask jack if he could help you with this sense, I'd really like to get some rest now. 
 
 (47:00)    
 
-**So the three parts of saying no in a nonviolent communication way**
+**So the three parts of saying no in a Nonviolent Communication way**
 
 * first of all to show an empathic reception of the request of the other person. They feel understood that their need was understood their request was understood.
 * Second, we don't say "no", we don't say "I can't", we say the need that keeps us from saying yes. 
 * we end with a request that searches for a way to get everybody's needs met. 
 
-*Another message that's hard to say in a nonviolent communication way.*
+*Another message that's hard to say in a Nonviolent Communication way.*
 
 ### More Constructive than Criticism
 
@@ -412,7 +412,7 @@ Or would you be willing to ask, and then I might say someone else around the hou
 
 How do we do that without criticizing? Of course, we all know how to interrupt another person when they're using more words when we want to hear in a violent way. We wait for them to breathe, and then we say quickly, excuse me, I just remembered my house is on fire, and we get out of the conversation as quickly as we can. Or we change the topic do anything so we don't have to listen to more words. 
 
-> In nonviolent communication, we stop the other person when we've heard more words, and we want to hear and let them know what our needs are, excuse me, but I'm impatient right now cuz I have a need for, and then we tell them what needs are not being met by the amount of words the other person is using. Again, we end on a clear request that searches for a way to get our needs met, and the other person's needs met. 
+> In Nonviolent Communication, we stop the other person when we've heard more words, and we want to hear and let them know what our needs are, excuse me, but I'm impatient right now cuz I have a need for, and then we tell them what needs are not being met by the amount of words the other person is using. Again, we end on a clear request that searches for a way to get our needs met, and the other person's needs met. 
 
 One reason I have found that people use more words than anybody wants to hear is that the speaker is not conscious of what they want back. They don't understand what their own present request is, and so they keep going on and on. Trying to get what they want, when they're not even too sure what they want in the conversation. 
 
@@ -434,7 +434,7 @@ She later told me that this was very helpful for her that I mentioned this. She 
 
 **As a result of our conversation, she started to become conscious of what she wanted back before she said anything.** Then she found that she would use far less words, and much more often, get what she wanted in the conversation. 
 
-This is a very important part of nonviolent communication that when we reveal our honesty, what's alive in us, when we say what's going on, to be conscious of what we want back. 
+This is a very important part of Nonviolent Communication that when we reveal our honesty, what's alive in us, when we say what's going on, to be conscious of what we want back. 
 
 My prediction is, the more conscious you are what you want back in the form of what you're requesting of your listener, you use fewer words and get more understanding. 
 
@@ -453,7 +453,7 @@ So I said to the Father, the son was sitting there, I said,
 
 *I want him to respect me*. 
 
-I said, *but in nonviolent communication, **we use the word respect more as a need, not as a request** that doesn't say clearly what you want him to do.* 
+I said, *but in Nonviolent Communication, **we use the word respect more as a need, not as a request** that doesn't say clearly what you want him to do.* 
 
 The son said, "*Yes. I think I'm respecting you. What do you want from me to show respect?*" 
 
@@ -518,36 +518,36 @@ Strategies that are destructive, first of all, because they're not possible, or 
 
 Now love many people use in a different way than as a need. Some people use the word love as a feeling. **Nonviolent communication suggests that we use the word love solely as a need and not as a feeling.** If we're trying to express emotions, then use other words beside love for describing what we are feeling. 
 
-To make this clear for people I tell a little story about a person asks their partner, "*do you love me*" and the partner uses nonviolent communication, and the partner knows how important it is to be clear what people mean by love. 
+To make this clear for people I tell a little story about a person asks their partner, "*do you love me*" and the partner uses Nonviolent Communication, and the partner knows how important it is to be clear what people mean by love. 
 
 So the partner says, *when you ask, do I love you? Are you using the word love as a feeling?*
 
 And this person says, *Yes, I use it as a feeling*. 
 
-The person using nonviolent communication says, *I see. You're asking whether I feel warm, tender, cuddly emotions toward you*. 
+The person using Nonviolent Communication says, *I see. You're asking whether I feel warm, tender, cuddly emotions toward you*. 
 
 The other person said, *Yes*. 
 
-And then the partner says, *Well, you see, we people in nonviolent communication, we use the word love as a need, not as a feeling. That's why I had to get this clear. But now that I know that you use the word love as a feeling, and I can see how important this is to you, I'll do my best to answer you honestly. Please ask the question again*. 
+And then the partner says, *Well, you see, we people in Nonviolent Communication, we use the word love as a need, not as a feeling. That's why I had to get this clear. But now that I know that you use the word love as a feeling, and I can see how important this is to you, I'll do my best to answer you honestly. Please ask the question again*. 
 
 The person says "*Do you love me?*" 
 
-The person using nonviolent communication says, *When?* 
+The person using Nonviolent Communication says, *When?* 
 
 The other person is shocked when they say "When?", 
 
-and the person using nonviolent communication says, *feelings change every few seconds. How can I possibly answer you honestly, without reference to a specific time and place?* 
+and the person using Nonviolent Communication says, *feelings change every few seconds. How can I possibly answer you honestly, without reference to a specific time and place?* 
 
 The other person says, *Well, what about right now?* 
 
-The person using nonviolent communication says, *No, but try me again in a few minutes. You never know.* 
+The person using Nonviolent Communication says, *No, but try me again in a few minutes. You never know.* 
 
 (58:45)    
-So in nonviolent communication, I hope that story, humorous way gets you to see how important it is **to use the word love as a need**. Then since, it's such an important need, to **be very explicit what we want from people to meet this need**. 
+So in Nonviolent Communication, I hope that story, humorous way gets you to see how important it is **to use the word love as a need**. Then since, it's such an important need, to **be very explicit what we want from people to meet this need**. 
 
 ## Strategies
 
-Another thing that's very important and expressing our needs in a nonviolent communication way is **not to get our needs confused with strategies for getting the needs met**. 
+Another thing that's very important and expressing our needs in a Nonviolent Communication way is **not to get our needs confused with strategies for getting the needs met**. 
 
 Here's two characteristics that will help us to differentiate between needs and requests or strategies for getting our needs met. 
 
@@ -557,14 +557,14 @@ Here's two characteristics that will help us to differentiate between needs and 
 
 #### I like the way the Buddha says this, the Buddha says, never get addicted to your requests. 
 
-Let me show you what this looks like then, in a nonviolent communication way.
+Let me show you what this looks like then, in a Nonviolent Communication way.
 
 (1:00:30)    
-A woman came back the second day of a workshop and said to me, I went home and tried what you taught us yesterday, Marshall about being honest in a nonviolent communication way. I tried it, but it didn't work. I said, let's learn from it. 
+A woman came back the second day of a workshop and said to me, I went home and tried what you taught us yesterday, Marshall about being honest in a Nonviolent Communication way. I tried it, but it didn't work. I said, let's learn from it. 
 
 What did you say and to whom? She said it was the message I gave to my oldest son. When I got home yesterday, I noticed that he had not done three things that he said he was going to do in terms of cleaning up around the house. She told me how she expressed herself honestly to him. 
 
-She told me how *she made a clear observation*. She pointed out to him these three things he hadn't done. *She clearly expressed her feelings and needs*. She made a *clear request*. She said, Would you please go and do those three things now? So she had clearly use the language of nonviolent communication. 
+She told me how *she made a clear observation*. She pointed out to him these three things he hadn't done. *She clearly expressed her feelings and needs*. She made a *clear request*. She said, Would you please go and do those three things now? So she had clearly use the language of Nonviolent Communication. 
 
 I said, What's the problem? That sounds like you really expressed it pretty clearly. 
 
@@ -577,19 +577,19 @@ Then what did you say?
 (1:01:30)    
 She said, I told him, You can't go through life being lazy and irresponsible. 
 
-I said, I can see that I didn't make clear yesterday, the difference between a request and a demand. **It sounds like your objective was to get him to do those three things.** She said, yes. I said, then **that's not nonviolent communication**. 
+I said, I can see that I didn't make clear yesterday, the difference between a request and a demand. **It sounds like your objective was to get him to do those three things.** She said, yes. I said, then **that's not Nonviolent Communication**. 
 
 #### If your intent is to get people to do what you want, that's a different intent than we need to have. 
 
-In nonviolent communication, it's never our objective to get what we want. It's to create the quality of connection with people that ends with everybody getting their needs met. 
+In Nonviolent Communication, it's never our objective to get what we want. It's to create the quality of connection with people that ends with everybody getting their needs met. 
 
 She said, Oh, so I'm supposed to do all the cleaning around the house, myself, and my needs don't count? 
 
-I said, now I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of nonviolent communication.** 
+I said, now I'm glad you're checking this out. No, I'm saying that **everyone's needs getting met, is the objective of Nonviolent Communication.** 
 
 This doesn't require ever giving up or giving in, **it just means not getting addicted to our strategy**. If we're addicted to our strategy, it's very easy for the other person to hear a request as a demand, this threatens their need for autonomy, and makes it harder for them to enjoy giving. We need to say clearly what we want. But the objective is to create a connection and then which everybody's needs get met through compassionate giving. 
 
-If your objective is just to get people to do what you want, don't study nonviolent communication. Go to a dog obedience school and see how they train dogs.
+If your objective is just to get people to do what you want, don't study Nonviolent Communication. Go to a dog obedience school and see how they train dogs.
 
 [![](https://i.imgur.com/LKOKvVd.jpg)](https://www.mediateyourlife.com/handouts/)
 

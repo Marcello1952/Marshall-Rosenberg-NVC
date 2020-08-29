@@ -59,15 +59,13 @@ For example, in the family, people often believe that because they are the paren
 
 ## The person behind the title
 
-One of the ways that nonviolent communication helps people to exercise the quality of authority that gets people to do things willingly, because they see how it's going to enrich their own life and the lives of others to do it. 
+One of the ways that Nonviolent Communication helps people to exercise the quality of authority that gets people to do things willingly, because they see how it's going to enrich their own life and the lives of others to do it. 
 
 One way is not to see people as titles, but to see people for their humaneness, even if they have titles. For example, when I used to teach at a university, I used to find that it was hard to create the quality of connection that I like to have when I'm in a learning or teaching situation. I like to have people connecting with me as a person and sharing with them what's valuable to me. I don't like to be in this position where they see me as this person who's imposing knowledge upon them. 
 
 I used to try to figure out what can I do so that the students will see me as a human being offering them something that's valuable to me, that I hope will be valuable to them. How can we create that quality of connection?, even though the institution the university makes it a challenge to do so? 
 
-After working on this for a couple of years, trying different things early in the semester to try to figure out what can I do, so that we can get over this culturally learned view of authority. 
-
-#### These people who sit in judgment, it makes it hard to see them as real people. 
+After working on this for a couple of years, trying different things early in the semester to try to figure out what can I do, so that we can get over this culturally learned view of authority, as people who sit in judgment, it makes it hard to see them as real people. 
 
 How do I get the students to see my humaneness? I came up with a playful little exercise the very first day that helped a lot. 
 
@@ -262,7 +260,9 @@ She said Marla came to school today dressed in blue jeans. I told her that isn't
 32:08  
 Well, I felt like celebrating. Marla has graduated from being a perfect little subservient girl, to a real human being. **_I could see she was going through a middle ground that people often have to go through before they become a human being. They go through rebellion, before getting to fully being free in their own rights to choose for themselves_**. 
 
-It's important that we not be obedient to authority, that we always recognize our choice. It's also important to recognize that rebellion is only halfway to being fully free. If we're rebelling against authority, we're still recognizing its power over us. When we're really conscious that we are free to choose, at any situation, in any environment. 
+It's important that we not be obedient to authority, that we always recognize our choice. It's also important to recognize that rebellion is only halfway to being fully free. If we're rebelling against authority, we're still recognizing its power over us. 
+
+When we're really conscious that we are free to choose, at any situation, in any environment. 
 
 I keep a picture in my office. It's actually a cartoon that helps me remember, no matter what structure we're within, we're free. It shows two prisoners in a prison cell strapped to the wall. It's obvious they've been in there a long time because they're both very thin. They both have long beards. And one turns to the other and says, Now, here's my plan. 
 
@@ -329,7 +329,7 @@ At one point, I got very emotional thinking of what these wives must go through,
 
 **I couldn't believe that I would cry in front of a group of top executives in a corporation** and when I looked up, I was expecting everybody to be contempt. And they were, I saw in everybody's eyes, you know. "What is wrong with this guy?" Especially the boss of the group, he just looked like, you know, how could any man cry in a setting like this? 
 
-I was glad that I had my nonviolent communication skills because from the look on all of their faces, if I hadn't tried to empathize with what was going on in them, I could have easily taken it that I'm not a real human male, that I'm disgusting. 
+I was glad that I had my Nonviolent Communication skills because from the look on all of their faces, if I hadn't tried to empathize with what was going on in them, I could have easily taken it that I'm not a real human male, that I'm disgusting. 
 
 It wasn't easy, but I got up my courage and I tried to check out what was going on in them. 
 
@@ -356,7 +356,7 @@ My colleague sat and held the hand of this patient and talked with her for 20 mi
 After this time, my colleague came out very annoyed, and she said, you see the women in that room? Did you see all that equipment she was hooked up to? Yes, yes. She said, you know, that woman has been in there for six hours and nobody has talked to her in that time. Can you imagine it? **A place that can be so skilled at knowing what equipment is necessary, but they don't know that people need human contact**.
 
 47:05  
-So many institutions that I work in, have a value system that this connects people from the humaneness of themselves and of the people with whom they work. *They'd get so caught up in productivity, which is important, but they get so caught up in the productivity, that they lose connection with human relationships.* Especially when they have titles that imply that they are superior, then especially it's hard for these people to relate in a human way. 
+So many institutions that I work in, have a value system that dis-connects people from the humaneness of themselves and of the people with whom they work. *They'd get so caught up in productivity, which is important, but they get so caught up in the productivity, that they lose connection with human relationships.* Especially when they have titles that imply that they are superior, then especially it's hard for these people to relate in a human way. 
 
 #### There's another aspect of authority that can be very destructive
 

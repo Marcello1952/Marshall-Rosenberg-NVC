@@ -1,6 +1,6 @@
 # Dynamics of Empathy - Session #4 - Nonviolent Communication Training - Marshall Rosenberg
 
-> In this session, I'll be discussing the dynamics of empathy as practiced within nonviolent communication. 
+> In this session, I'll be discussing the dynamics of empathy as practiced within Nonviolent Communication. 
 
 [![](http://i.imgur.com/ehy0DcE.png)](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)\
 [NVC Training Course Session #4 Marshall Rosenberg CNVC.org](https://www.youtube.com/watch?v=rWdQ7mKsQIc&list=PLPNVcESwoWu4lI9C3bhkYIWB8-dphbzJ3&index=5&t=0s)
@@ -17,7 +17,7 @@
 
 ## Introduction
 
-In this session, I'll be discussing the **dynamics of empathy as practiced within nonviolent communication**. 
+In this session, I'll be discussing the **dynamics of empathy as practiced within Nonviolent Communication**. 
 
 As an image to help you understand what I mean by empathy, I'd like to refer to an image that was quoted in a book [Here and Now](https://www.goodreads.com/book/show/18242896-the-here-and-now). This person who wrote the book had heard me giving an explanation of empathy in a workshop and he incorporated it in his book. 
 
@@ -108,7 +108,7 @@ Another thing that's not empathy, as I'll be defining it in this session, are th
 
 I understand exactly how you feel. Too many people have had someone say, I understand, and what the person was understanding was not at all what was alive in the speaker. It was just what their intellectual understanding of the situation was. 
 
-In nonviolent communication as we'll see, we never say I understand. 
+In Nonviolent Communication as we'll see, we never say I understand. 
 
 #### We do something far more powerful. We demonstrate understanding. 
 
@@ -140,7 +140,7 @@ So they may have felt scared in the past, when their father did that, but at thi
 
 That means not on thoughts. Most people are used to talking about their thoughts what they think about something. 
 
-In nonviolent communication, we find that *we can form a much more precious connection with people by hearing what is alive in them when they tell us their thoughts*. 
+In Nonviolent Communication, we find that *we can form a much more precious connection with people by hearing what is alive in them when they tell us their thoughts*. 
 
 This requires being aware that **many of the thoughts that people make, especially those that judge others or themselves, are really tragic expressions of what they're feeling and needing at that moment**. 
 
@@ -166,7 +166,7 @@ We want to connect, It's not a test that we have to get right.
 
 No matter what thoughts or other forms of communication come at us. 
 
-When we empathize in a nonviolent communication way, we try to connect with what's alive in the person in terms of their feelings and needs. When we're not sure, we sometimes want to confirm whether or not we have connected empathically with the person by saying the word words out loud. 
+When we empathize in a Nonviolent Communication way, we try to connect with what's alive in the person in terms of their feelings and needs. When we're not sure, we sometimes want to confirm whether or not we have connected empathically with the person by saying the word words out loud. 
 
 That might sound like "*are you feeling*" and we then add to that what we sense the person might be feeling. And then we connect their feelings to their needs. "*Are you feeling as you do because your need for x isn't being met?*"
 
@@ -205,7 +205,7 @@ If I were in his place, I wouldn't have felt the need to say anything. And he di
 
 **We're going to guess wrong.**
 
-> In nonviolent communication, we never try to be perfect. We try to be progressively less stupid. 
+> In Nonviolent Communication, we never try to be perfect. We try to be progressively less stupid. 
 
 #### We're conscious that anything that's worth doing is worth doing poorly. 
 
@@ -283,7 +283,7 @@ The other things that helped me guess were the fact that, as I was walking into 
 I could have been wrong. But if I was wrong, it focuses on his feelings and needs and will help him to get clear about it. But even more than that, as I've said, it shows that I value what's alive in him.
 
 33:19  
-When people trust that you value what's alive in them what they're feeling and needing at a given moment, that takes more precedence for you. Then whether what they're saying is right or wrong. This has a big impact on the relationship. It makes compassionate, connecting much easier when people really feel that what's alive in them is what matters to you. 
+When people trust that you value what's alive in them what they're feeling and needing at a given moment, that takes more precedence for you. Then whether what they're saying is right or wrong. This has a big impact on the relationship. It makes compassionate connecting much easier when people really feel that what's alive in them is what matters to you. 
 
 Now, that often is not going to happen immediately that this shift occurs, and in his case, it didn't appear immediately. It happened that I guess right this first time he was angry, and he did have a need for a different kind of support from my country. He was a little shocked at first when I said that, but then that opened him up to say more. 
 
@@ -323,7 +323,7 @@ What I'm inclined to do, if I'm not sure is to just ask the person, is there mor
 *Another message that I have found very important to hear empathically is the message No.* I don't want to, or I'm not willing.
 
 39:16  
-In our nonviolent communication training, we show people how to hear the human behind the no. To be conscious that, if we hear a no, we're hearing very little about what's really alive in this person at this moment. We need to do the same thing with the no as we do if somebody is telling us what's wrong with us, to hear through the message to what is alive and the person when they say this. 
+In our Nonviolent Communication training, we show people how to hear the human behind the no. To be conscious that, if we hear a no, we're hearing very little about what's really alive in this person at this moment. We need to do the same thing with the no as we do if somebody is telling us what's wrong with us, to hear through the message to what is alive and the person when they say this. 
 
 **More specifically, what are they feeling and needing?** 
 
@@ -363,7 +363,7 @@ Just the empathy helps them. Even though they might not want to go, they underst
 
 #### Another important message to hear, in an empathic way, is silence. 
 
-You see if we're using nonviolent communication, and we learn how to empathically connect with what is going on in other people, at any given moment. The other person can't not communicate with us, because even silence is a very loud, powerful message. One example of this occurred when some parents heard me speak on the radio. 
+You see if we're using Nonviolent Communication, and we learn how to empathically connect with what is going on in other people, at any given moment. The other person can't not communicate with us, because even silence is a very loud, powerful message. One example of this occurred when some parents heard me speak on the radio. 
 
 They called on the telephone and ask if I would be willing to see their 24 year old daughter. They told me she was in a mental hospital and she just sat very depressed all day long staring at the floor. 
 
@@ -467,7 +467,7 @@ I want to maintain that the interruption I'm suggesting is not one to take the c
 #### Excercise: 
 ## Connecting with what's alive in someone
 
-For many of the people who come to our nonviolent communication trainings, what I'm suggesting, focusing our attention on the present, on what's alive in the other person, what they're feeling and needing. They tell me it's a rhythm they're not used to.
+For many of the people who come to our Nonviolent Communication trainings, what I'm suggesting, focusing our attention on the present, on what's alive in the other person, what they're feeling and needing. They tell me it's a rhythm they're not used to.
 
 They're so used to getting defensive when other people tell them what's wrong with them. They just fade out when people are using more words and they want to hear. They asked **what could they do to speed up their ability to just connect to what's alive in people?** 
 
@@ -533,13 +533,13 @@ before I build that wall of words,
 tell me did I really hear?
 
 Words are windows or they're walls
-sentence us or set us free
-and I speak and when I hear
-let the love light shine through me
+They sentence us or set us free 
+When I speak and when I hear
+Let the love light shine through me
 
 There are things I need to say
-things that mean so much to me.
-If my words don't make me clear
+Things that mean so much to me
+If my words don't make me clear 
 Will you help me to be free?
 
 If I seem to put you down
@@ -548,11 +548,9 @@ try to listen through my words,
 to the feelings that we share
 
 Words are windows or they're walls
-sentence us or set us free
-and I speak and when I hear
+They sentence us or set us free
+when I speak and when I hear
 let the love light shine through me
-
-Transcribed by https://otter.ai
 
 ## Resources
 

@@ -10,7 +10,7 @@
 
 #### The Purpose of Nonviolent Communication & Expressing Observations and Feelings
 
-First let me begin by clarifying the purpose of nonviolent communication. Its purpose is to help you to do what you already know how to do. Now why do we need to learn something today that you already know how to do? Because sometimes we forget to do this. We forget because we've been educated to forget.
+First let me begin by clarifying the purpose of Nonviolent Communication. Its purpose is to help you to do what you already know how to do. Now why do we need to learn something today that you already know how to do? Because sometimes we forget to do this. We forget because we've been educated to forget.
 
 Now what is it that i'm talking about that we already know how to do? **The purpose of this process is to help us to connect in a way that makes natural giving possible.**
 
