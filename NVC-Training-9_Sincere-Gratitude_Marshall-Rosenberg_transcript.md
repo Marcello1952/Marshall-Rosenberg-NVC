@@ -50,14 +50,14 @@ But *they are at attempt to manipulate them to behave in ways that others want t
 
 Research shows that **when people sense that the praise and compliments are given out of that energy, they lose their desire to work harder and to contribute to what the authorities want them to do**. 
 
-So from the very beginning, I'd like to make it clear that the way of expressing gratitude that we'll be talking about in this session, the intent is to celebrate life, not to reward people for doing what we want them to do. 
+From the very beginning, I'd like to make it clear that the way of expressing gratitude that we'll be talking about in this session, the intent is to celebrate life, not to reward people for doing what we want them to do. 
 
 By celebrating life, **I mean that we let people know how our needs have been fulfilled, and how our life has been enriched by something they have done**. Our only intention is to celebrate that, and not in any way to put them under pressure to continue doing that which we would like them to do.
 
 ## Expressing Gratitude
 
 4:17  
-So the difference between Nonviolent Communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in Nonviolent Communication. 
+The difference between Nonviolent Communication and other forms of communication that involve giving praise and compliments is the way in which the gratitude is expressed in Nonviolent Communication. 
 
 #### Gratitude is expressed by saying three things that allow the other person to see how their actions have enriched our lives. 
 
@@ -131,7 +131,7 @@ After they have a chance to practice expressing the gratitude in this way, I say
 
 What has kept you from expressing it till this point? 
 
-And then write down that answer. 
+Then write down that answer. 
 
 Then we look as a group on what are the forces that go on within us and that we think go on within others that keep us from having an open flow of gratitude. 
 
@@ -216,14 +216,14 @@ I mentioned in this previous session, how much that meant to me, to see that the
 
 How I kept thinking about it over the years, how it was never far from me, how much it meant my need to remember that we human beings were meant to contribute to each other's well being, not to get caught up in all the violence. 
 
-And I expressed that to him, I'm pleased that I made it pretty clear. **I let him know that smile enriched my life in such a profound way. And I could see in his eyes that he received the gratitude, I could see how it was enriching him**. 
+I expressed that to him, I'm pleased that I made it pretty clear. **I let him know that smile enriched my life in such a profound way. And I could see in his eyes that he received the gratitude, I could see how it was enriching him**. 
 
 I also asked him, I said, uncle, how did you learn to do that? How did you learn to stay compassionate? I understand that you had a rough upbringing that you went through a lot of trauma in your life. 
 
 #### How have you managed to stay compassionate so well?
 
 22:40  
-And he liked the question, and he thought for a while and he said, Well, you know, I was very fortunate to have good teachers. **I also happened to be around people who, I saw, enjoyed contributing to other people's well being. It was easy to learn from them**. 
+He liked the question, and he thought for a while and he said, Well, you know, I was very fortunate to have good teachers. **I also happened to be around people who, I saw, enjoyed contributing to other people's well being. It was easy to learn from them**. 
 
 I said, Could you give me an example who one of these people were? 
 
@@ -231,7 +231,7 @@ He said, you know, the best teacher of all I had, it was your grandmother. Of co
 
 When she wasn't ill, oh, how wonderful it was to be around her, and to see how she contributed to people's well being, and how much joy she felt in that, and how much people received from that and how much they enjoyed her presence. I learned so much from her. 
 
-And I said, Could you give me an example of one of the things that she did that had great power for you in helping you remember the joy that we feel in contributing to people's well being? 
+I said, Could you give me an example of one of the things that she did that had great power for you in helping you remember the joy that we feel in contributing to people's well being? 
 
 He said, Well, there's so many things she did. It's hard to pick one out. He said, Well, as your mother told you about the time that she brought Taylor and his wife and two children into the house when they lost their house during the depression. They stayed in the house for five years. 
 
@@ -245,11 +245,11 @@ Then he went on and told me two other examples of how my grandmother helped peop
 
 *I said, What? No, she didn't tell me about Jesus*. 
 
-So he went on to tell me this story about Jesus. 
+He went on to tell me this story about Jesus. 
 
 One day a man showed up at my mother's back door, he had a wild beard. Around his neck, he had a tree branch in the rough shape of a cross. Like many people did, knowing my grandmother's generosity, *he said he was hungry and would appreciate some food*. 
 
-So she invited him into her kitchen. While he was sitting there eating, she asked him his name.
+She invited him into her kitchen. While he was sitting there eating, she asked him his name.
 
 24:54  
 *And he said, my name is Jesus.*
@@ -321,11 +321,11 @@ That was one of the reasons I saw that kept me from expressing some of the grati
 
 I tell people, when that's their reason for not expressing it, I tell them that **I went to the people that I didn't express my gratitude to**, because I assumed that they knew it, and **I asked them, Did you know?** 
 
-And **half of them did and half of them didn't**. 
+**half of them did and half of them didn't**. 
 
 But even the ones who did still told me they would have liked to have heard it. 
 
-So since then, when I tell myself, Well, it isn't necessary to express gratitude, they know. I'm also now quite eager to express the gratitude, even if I think they do know it. I still want to have the opportunity to express it directly and have them receive it. 
+Since then, when I tell myself, Well, it isn't necessary to express gratitude, they know. I'm also now quite eager to express the gratitude, even if I think they do know it. I still want to have the opportunity to express it directly and have them receive it. 
 
 **Another frequent reason why people tell me they don't express the gratitude**. They're afraid that it would be embarrassing for the other person, the other person would not know how to take it in very well. 
 
@@ -335,7 +335,7 @@ It was for that reason that I guess that it would be not easy for him to take hi
 
 But, I certainly wanted to be sure that he did take it in before, it was no longer possible for me to tell him. 
 
-So the next time I met with him, we went out for a walk together, which we usually did. While we're on the walk, I said Dad, I'd like to express a deep gratitude. I for you, and before I went any further, just what I predicted would happen was starting to take place, **I could see he got very nervous and said, Oh, don't worry about expressing anything like that, you know, I mean, you're a good son**. 
+The next time I met with him, we went out for a walk together, which we usually did. While we're on the walk, I said Dad, I'd like to express a deep gratitude. I for you, and before I went any further, just what I predicted would happen was starting to take place, **I could see he got very nervous and said, Oh, don't worry about expressing anything like that, you know, I mean, you're a good son**. 
 
 I said, Dad, I really would like you to hear it. It's a very deep gratitude. And I really want to express it. I told him what this gratitude was, what he had done and how much it had enriched my life. 
 
@@ -358,7 +358,7 @@ We're afraid that it's going to embarrass people, so we don't express it.
 
 #### It's not only important to express gratitude, it's also very important to receive it well. 
 
-And I find out this is one of the hardest things for people to do in a way that's consistent with Nonviolent Communication principles. 
+I find out this is one of the hardest things for people to do in a way that's consistent with Nonviolent Communication principles. 
 
 Nonviolent communication suggests that we empathically commit with any message that's coming at us, that we hear the feelings and needs be expressed by the person. 
 
@@ -372,13 +372,13 @@ There are several other reasons why I find that it's very hard for many people t
 
 #### A lot of people tell me just how difficult it is for them to take in the gratitude. 
 
-And I've asked people what makes it so hard? 
+I've asked people what makes it so hard? 
 
 There's various reasons why, people give me, but some of the most popular ones, some people will say, well, it's my duty to do that, you know, **why should I feel good about it, or take it in? It's just what I was paid to do or what I'm supposed to do**. 
 
-So just as it's hard for us to express gratitude, if we have this thinking of obligation, duty, and that's why you do things and that's all, it's necessary. Just do what's right, because it's your obligation. 
+Just as it's hard for us to express gratitude, if we have this thinking of obligation, duty, and that's why you do things and that's all that's necessary. Just do what's right, because it's your obligation. 
 
-So that means we often don't express gratitude, thinking it's the other person's duty and obligation, they shouldn't need any gratitude for it. 
+That means we often don't express gratitude, thinking it's the other person's duty and obligation, they shouldn't need any gratitude for it. 
 
 The same thing goes about receiving gratitude. If we've been educated to think it's our duty, we can't hear easily, how the person's life has been benefited by what we have done. We're not used to that. 
 
@@ -421,7 +421,7 @@ I'd be very grateful that a friend of mine, who is a musician, and had been writ
 
 I said something like, *Oh, I'm glad that you found it helpful*. 
 
-And she could sense that I wasn't really comfortable receiving the gratitude. 
+She could sense that I wasn't really comfortable receiving the gratitude. 
 
 She brought this to my attention. She said, Now, Marshall, I didn't feel like you really receive my gratitude very empathically now. 
 
@@ -476,7 +476,7 @@ That night, she went home and could really see how hard it was for her to receiv
 Your arms are warm around me,
 their welcome is complete.
 Your voice it channels through me
-and the syllables are sweet.
+The syllables are sweet.
 Your eyes are pure as darkness 
 too compelling to deceive.
 
@@ -491,7 +491,7 @@ Why is it so hard to believe?
 If somehow I could see myself 
 through your honest searching eyes. 
 Perhaps I could accept myself
-and come to realize 
+Come to realize 
 that it's not so incredible, 
 that love should come to me.
 
@@ -499,7 +499,7 @@ Why is it so hard to believe?
 I know how much I love you
 how much I want to give 
 your trust affirms my love for you,
-and lets my loving live.
+Lets my loving live.
 
 To give is domination, if I can't also receive
 Why is it so hard to believe?
@@ -550,12 +550,12 @@ I write down those three things:
 * And I write down what need of mine was fulfilled by their doing that. 
 
 50:19  
-And then I draw flower, just to slow me down so I can just let in what they did and how good it felt.
+Then I draw flower, just to slow me down so I can just let in what they did and how good it felt.
 
-And then I asked myself this question, **have I expressed clearly to that person, just how much my life was enriched by that**?
+Then I asked myself this question, **have I expressed clearly to that person, just how much my life was enriched by that**?
 
 50:47  
-And very often I find that I either didn't, or I expressed it in a lazy Nonviolent Communication way. Now, here's how you express gratitude and a lazy Nonviolent Communication way. You say thank you, and sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did, and can sense perhaps how we feel and what need was met. 
+Very often I find that I either didn't, or I expressed it in a lazy Nonviolent Communication way. Now, here's how you express gratitude and a lazy Nonviolent Communication way. You say thank you, and sometimes that's all we need to do sometimes just saying thank you, the person can see they know what they did, and can sense perhaps how we feel and what need was met. 
 
 There are some gratitudes that I want to be sure the person really got clear just how much what they did enriched my life. 
 
@@ -573,9 +573,9 @@ I use that phrase after working with a friend of mine who was living in a low in
 
 After three days, in what was for him quite a different culture, I was curious about what it was was like for him. 
 
-And I asked him, I said, Hey, what's it like being in this culture with all these white people and most of them college professors?
+I asked him, I said, Hey, what's it like being in this culture with all these white people and most of them college professors?
 
-And he said, *it's okay man, but what really drives me nuts, to tell you the truth, is the sneaky bragging*. 
+He said, *it's okay man, but what really drives me nuts, to tell you the truth, is the sneaky bragging*. 
 
 I asked what he meant by sneaky bragging. 
 
@@ -591,7 +591,7 @@ I thought, how wonderful that was that people could do that. I also thought at t
 
 This was a prison I'd worked at before, and when I came in, the director of the prison said, you're going to have your hands full with the group you're working with today. There's been lots of tension on the ward, even more than usual. 
 
-Well, there usually was a lot of tension. So I thought it's probably going to be something today. Then as I got into room, I was with about 20 prisoners and about six guards. I could see in their faces, they were all upset and just ready to get at each other. 
+Well, there usually was a lot of tension. I thought it's probably going to be something today. Then as I got into room, I was with about 20 prisoners and about six guards. I could see in their faces, they were all upset and just ready to get at each other. 
 
 55:40  
 I said to them, before we start the workshop today, I know we got lots of tension to deal with. But I've been thinking on the way here's something a friend told me yesterday about what he called sneaky bragging and how people are reluctant to express something they've done that they feel good about. 
@@ -600,15 +600,15 @@ I said to them, before we start the workshop today, I know we got lots of tensio
 
 Tell me what you did and how you feel about doing it and what need was met. This will give us some chance to practice what we worked on in other sessions, how to express feelings and needs only this will give us a chance to try it out with something we've done that we feel good about, because it met a need of ours, and then we'll get into the heavy stuff I said. 
 
-So I suggested we start on my left. There sitting on my left was a gentleman who was a prisoner, and who the previous three sessions that we had, had hadn't said one word, he just stared at me. 
+I suggested we start on my left. There sitting on my left was a gentleman who was a prisoner, and who the previous three sessions that we had, had hadn't said one word, he just stared at me. 
 
-So anyway, I said, So would you be willing to start? Now for the first time he said something, and it was obvious that he had been listening in previous sessions, because he made a clear observation to express the feeling, he said, pointing at one of the guards across the room, **when you came in my room today to wake me up to go to work, and I didn't cuss you out like I usually do. I feel good that I didn't do that**. 
+Anyway, I said, So would you be willing to start? Now for the first time he said something, and it was obvious that he had been listening in previous sessions, because he made a clear observation to express the feeling, he said, pointing at one of the guards across the room, **when you came in my room today to wake me up to go to work, and I didn't cuss you out like I usually do. I feel good that I didn't do that**. 
 
 Well, he did express and clear observation. And he did say he felt good, but he didn't connect it to his needs. 
 
 I wondered, well, should I just leave well enough alone, but anyway, I said to him, and what about the need? 
 
-He said, I know he wakes me up because he wants me to develop good work habits. So just because I don't like getting up in the morning, I don't want to take it out on him. 
+He said, I know he wakes me up because he wants me to develop good work habits. Just because I don't like getting up in the morning, I don't want to take it out on him. 
 
 I like that way of expressing his self gratitude. By the time we got to two more people, there was a whole different energy in the group, just to start by people celebrating something they've done that met their needs and that they felt good about. 
 
@@ -618,7 +618,7 @@ For example, in many of the families that I work with, they'll stop before eatin
 
 I asked them, Do you do the same to stop and give thanks for what people in the family have done that is enriching your life? 
 
-Sadly most of them tell me no. So I have been recommending to families that I work with, to consider the option of taking some time every day, not out of duty obligation have to but out of the desire to celebrate to celebrate how you can enrich one another's lives. 
+Sadly most of them tell me no. I have been recommending to families that I work with, to consider the option of taking some time every day, not out of duty obligation have to but out of the desire to celebrate to celebrate how you can enrich one another's lives. 
 
 My wife and I take time every morning before we go off into the world. This opportunity to stop and express openly what the other has done that has enriched our life to tell them as best we can, how it enriched our lives.
 
@@ -626,7 +626,7 @@ My wife and I take time every morning before we go off into the world. This oppo
 #### What a wonderful way to start the day.
 
 59:17  
-And I tell people to look at their work setting, are they expressing gratitude and receiving gratitude in their workplace. 
+I tell people to look at their work setting, are they expressing gratitude and receiving gratitude in their workplace. 
 
 In many of the places that I work, they just can't even imagine it. For example, I was working in a big business in Madison, Wisconsin. 
 
@@ -649,16 +649,16 @@ I said, Yes, I remember very clearly that I suggested that, and you didn't seem 
 
 He said, No, I wasn't, I really saw so much that had to get done. An associate of mine, he really liked the idea. He kept bugging me. The next three days, he would say, hey, why not? We can make time for it. 
 
-So I finally said, Okay, okay. And we took 10 minutes at the beginning of our meeting, just to give people a chance to express gratitude, before we got into all of the hard stuff. 
+I finally said, Okay, okay. And we took 10 minutes at the beginning of our meeting, just to give people a chance to express gratitude, before we got into all of the hard stuff. 
 
 He said, now, Marshall, we're up to 20 minutes. We found that **when we take that much time to stop and slow down and celebrate what's being done, how it's enriching our lives, we find that even then when we get into the hard stuff, it is so much more productive**. 
 
-So while we're on this subject of gratitude, I would like to express my deep gratitude that you have taken this time to hear what I've had to offer. 
+While we're on this subject of gratitude, I would like to express my deep gratitude that you have taken this time to hear what I've had to offer. 
 
 I've been offering you that which is very precious in my life, and it's quite a gift that you have given me your presence to receive this.
 
 1:02:33  
-And I hope that these sessions have strengthened your awareness of the preciousness of connection. It is possible for us at any time with any person. A precious connection that I like, is described beautifully for me in the following song 
+I hope that these sessions have strengthened your awareness of the preciousness of connection. It is possible for us at any time with any person. A precious connection that I like, is described beautifully for me in the following song 
 
 #### and the song is Revelation
 
@@ -675,7 +675,7 @@ And I hope that these sessions have strengthened your awareness of the preciousn
 > 
 > still before your gift of self
 > for the presence you present
-> heae the ancient image speak, 
+> hear the ancient image speak, 
 > stand on holy ground.
 > 
 > Remembering that barefoot 
